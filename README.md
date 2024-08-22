@@ -1,5 +1,9 @@
 # plastic-kenny
 
+*plastic: flexible or pliable -- mouldable to a desired shape.*
+
+I've lost my sense of self, which means that I will become the thing that my environment shapes me to be. inotherwords, I'm beginning to become something, and it's largely dictated by my surroundings. [TODO]
+
 this repository is an extension to all of the writing I did on [heavyk](https://github.com/heavyk).
 
 - [blahblog](/bladblog.md) - where I talk things out on subjects that are of importance to me
