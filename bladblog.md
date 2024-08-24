@@ -35,3 +35,7 @@ in other news, I had a whole bunch of dreams (or maybe it was just one that blur
 #### 2024-08-22 16:48 - concrete and calcium
 
 later on, I looked it up and in modern concrete there isn't much carbon. however, there's quite a bit of calcium -- which also has a cubic structure. I'm going to have to research it a bit more, but I think its effect is pretty much the same. calcium is also quite absorbant -- and either way, I'm still fairly certain that its action is the same, where it's just a larger (ie, higher octave) version of similar cubes found in the inside of the earth, which is what makes it attractive/absorbant. quite interesting. I'm still learning chemistry my way -- and hopefully I'll be able to write about it in a conceptual way soon.
+
+### 2024-08-24 17:07 - the worst stomach ache ever
+
+it turns out (or so it seems) that [...] essence collecting, and I'm getting used to it, and eventually I won't have such a sick stomach. I find it to be OK, as it's part of the becoming only-attraction/absorbative. gatta go.
