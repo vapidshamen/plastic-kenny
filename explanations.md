@@ -1,0 +1,6 @@
+# explanations
+
+### 2024-09-09 00:18 - the basic triad
+
+today in church there were a number of events which lead me to s pretty big realisation. imagine a space, where the top is set by the top, the middle is set by the bottom, and the reflector is at the ground: top, bottom, ground. the ground can be thought of as earth or any other rigid material. there's no way to go farther down than the ground. it's literally the bouncing off place or reflector. 
+to illustrate the idea in real-life imagine now some really cool manifestation; well, the ground will never get it because that would lift the ground up -- so instead the bottom gets to try out the manifestation -- and we can imagine the bottom as being the upward force in that layer of atmosphere above earth. he's trying to get to the top -- however it's not likely that the top will just let him pass by, because he provides the downward/inward pressure. that pressure can be thought of like the centre of a star, where in inward pressure is so great, it creates a negatively expanding bubble, kinda like a balloon. that space for the top continues to expand, and we can think of that inner space the top creates in the centre of the head, God or the connection to source or the attractive part of the equation.
