@@ -17,10 +17,18 @@ so, mom decided it was time for me to move out. the computer I was using to writ
 
 ### alter egos
 
+- ke669 - AIM user name (it spells "kenny" when typing on the phone)
 - real_man - original name I used for FireArms, counter-strike, and Half-Life
 - sexydawg - second name I used for counter-strike and Half-Life, especially when playing with the hilseths.
-- [kennyb](https://github.com/kennyb)
-- [heavyk](https://github.com/heavyk)
+- seriousmoose - funny name, cause mooses are a very serious species
+- sophisticatedlimabean - name used when playing EVE (now my sister uses it)
+- timeisred - name used when playing EVE
+- real_man1111 - steam acct from a long time ago
+- [kennyb](https://github.com/kennyb) - smart guy that worked for tuenti and plays [captain of industry](https://www.captain-of-industry.com/)
+- [heavyk](https://github.com/heavyk) - crazy guy that does drugs and writes a lot
+- [vapidshamen](https://github.com/vapidshamen) - this account
+- [vapidshamen69 (instagram)](https://www.instagram.com/vapidshamen69/) - pictures I take randomly in pueblo
+- ... incomplete
 
 
 ### licen[sc]e
