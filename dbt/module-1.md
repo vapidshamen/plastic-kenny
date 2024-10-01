@@ -23,16 +23,16 @@
 #### experience reality as it is
 
 - [ ] live life with eyes wide open
-- [ ] experience the reality of your...
-    - connection to the universe
-    - essential "goodness."
-    - essential validity
+- [ ] experience the reality of...
+    - my connection to the universe
+    - my essential "goodness."
+    - my essential validity
 
 ### mindfulness definitions
 
 #### what is mindfulness
 - **intentionally living with awareness in the present moment**
-    - (waking up from automatic or wrote behaviours to participate and bve present to our own lives)
+    - (waking up from automatic or wrote behaviours to participate and be present in my own life)
 
 - **without judging or rejecting the moment**
     - (noticing consequences, discering helpfulness/harmfulness -- but letting go of evaluating, avoiding, suppressing, or bloking the present moment)
