@@ -1,7 +1,6 @@
+# mothership-connection :: outline
 
-# module-1 :: welcome to 3D
-
-## welcome to 3D
+## module-1 - welcome to 3D
 
 ### in 3D physical reality, **the past cannot be changed**
 
