@@ -5,21 +5,21 @@
 
 ### in 3D physical reality, **the past cannot be changed**
 
-though the past can be tuned in to (memory or remote viewing), the past cannot be changed.
-there is nothing like the present. all things are happening now.
+though the past can be tuned-in to and viewed in the present (ie, memory or remote viewing), the past cannot be changed.
+the only thing that exists is the present. the past can be viewed in the present, and the future can be looked forward to in the present, as well, but it all happens in the present. the only thing that can be changed is the present.
 
 ### 3D humans create the forward motion of time
 
 the fact that what happened in the moments leading up to the present, cannot be changed, 3D humans are the reference point of "now" upon which all other perceptions of time are relative to.
-some other perspectives, such as the saturnian perspective allow for the past to be changed and the present to be affected by those changes, however, those perspectives are not only-attraction (they operate with rules other than resonance).
-all reality in the present/now is a reflection of the perceivers of that reality [TODO - improve this]
+some other perspectives, such as the saturnian perspective allow for the past to be changed and the present to be affected by those changes, however, those perspectives attraction-based, and operate on a system of rules and conditions that are outside of any of our control.
+every next momont that happens (as it becomes now) becoming the present is a reflection of the perceivers of that moment's perception on reality (more on this later)
 
 ### I am the centre (of *everything*)
 
-everything that I experience is attracted by me (ie, it resonantes similarly to me in some way -- at least in its position in time/space)
-the reality I experience around me feels exactly the way I feel about all of its concepts relative to my concepts/perception (ie, reality is a reflection of my perception)
+everything that I experience is attracted by me. that is, it resonantes similarly to me and how I feel about the contents of that moment. if I feel bad about the contents of my perceived reality, that is my perception of that reality.
+inotherwords, all of the concepts present in the present moment of reality produce a feeling to me, and that moment exactly corresponds with how I feel about it. in short, reality is a reflection of how I feel about it (which is my perception).
 
-any moment other than now (past or future) also feels exactly like how I feel about all perceived concepts in that moment relative to my concepts (ie, all moments are a reflection of my perception). as I change my perception, the way my past feels also changes.
+likewise, *any* moment (past or future) also feels exactly like how I feel about all perceived concepts in that moment. the feeling that is generated is all *relative to me* (I am the centre of my universe/reality) -- so the resonace between my concepts about all the concepts present in that moment produces how I feel in that moment. I consider it unproductive to try and change any concept outside of myself, so I'm left only with the capability of changing my concepts of the the things I perceive in that momnt. as I change my perception (my concepts of the present), the way my past feels also changes.
 
 everything around me is present because it was attracted in some way.
 
@@ -109,5 +109,3 @@ focus happens as a result of a strong emotional reaction -- so, notice the infin
 
 # module-3 :: Core Self
 ## Three Core Aspects of Self
-
-
