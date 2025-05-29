@@ -27,7 +27,7 @@ I do often times say the word, "sorry" or say that I shouldn't have done somethi
 #### 5. they believe that they're always right
 
 of course they do; we're the centre of everything in our universe, and so (in our perCeption) *all things are relative to me*. a relative person will see their relativity between theirself and someone else (as if both points are in motion), however a self-centred person will see theirself as absolute (staying as close to zero, and having as little m6vement as possible), so we see ourself as absolute and everything else as a derivative of our own perception of the same idea.
-this is actually the best form of perception. the self-centred perspective is actually possible for everyone to think this way. in fact, I believe it's our normal form of perception until we're taught by society and stuff to lose our self-centredness and instead satisfy others. living in relation to the other makes you a you; living in relation to only yourself and letting others be relative to that, makes me singular: I.
+self-centredness is actually the best form of perception. the self-centred perspective is actually possible for everyone to experience simultaneously. in fact, I believe it's our normal form of perception until we're taught by society and stuff to lose our self-centredness and instead satisfy others. living in relation to the other makes you a you; living in relation to only yourself and letting others be relative to that, makes me singular: I.
 
 #### 6. they struggle to celebrate others
 
@@ -46,7 +46,7 @@ I moderately disagree with this one. I used to interrupt a lot, and it was usual
 2. the thing they were about to say feels bad to me, and I don't want them to say something that feels bad to me, and/or I don't want to hear it.
 3. I already think I know what they're going to say.
 
-as I've gotten more and more stable in my self-centredness (not so strongly affected by others), I no longer feel like I need to steer the conversation away from things that are unconfortable to me. also, in the case of thinking I already know what they're going to say, I've actually found out that they present the idea in slightly different ways each time (according to what I'm attracting), so I instead just listen (because there's a conceptual resonance with what I'm attracting and what they want to tell me) and try to get they idea they're wanting to present to me.
+as I've gotten more and more stable in my self-centredness (not so strongly affected by others), I no longer feel like I need to steer the conversation away from things that are unconfortable to me (I'm a better listener (receptive). also, in the case of thinking I already know what they're going to say, I've actually found out that they present the idea in slightly different ways each time (according to what I'm attracting), so I instead just listen (because there's a conceptual resonance with what I'm attracting and what they want to tell me) and try to get they idea they're wanting to present to me.
 
 #### 9. they twist the truth to their advantage
 
