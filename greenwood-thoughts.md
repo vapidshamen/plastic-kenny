@@ -246,3 +246,53 @@ interestingly enough, I watched [this video](https://www.youtube.com/watch?v=OQ2
 so the major revelation for me was when disciple dojo guy (I don't know his name) was explaining that paul talks about how jesus *is* the fulfillment of the covenant of abraham, because now when we're all going to "meet" him (like the town goes out to meet an arriving figure and welcome him into the town), it doesn't matter if we're dead, alive, or whatever, because we're all now *in* messiah jesus. said in my words, jesus took over the saturnian-system (this is descending into the grave -- the centre of the earth, conquering death/mote), and taking on the "sins" of the world.
 well, I'm not jesus, and I don't pretend to be (cause we're quite different), though I did accept him into my heart as a kid and I did have quite a number of "personal experiences" with him as well, where I would communicate and get the answers I was looking for (so I really do belive he was "in m5"). however, if jesus becoming the saturnian-system, was what "saved" everyone (destining everyone to have similar/resonant genetics with him), then I believe I have probably (though it was an accident and I never intended to have children or spread my genetics in any way) done the same thing that jesus did. I can't be certain, but it seems that I've (accidentally) taken over the saturnian-system, and essentially become the new saturn -- and it's all basically because of my tremendous ambition to desire to perceive like the universe does.
 so, instead of trying to run away from the church, I'll probably just stay here and let them "crown" me as king (sexual connotations aside -- whatever it is that they want to do). it's obviously not going to turn out the way that they thought it would (it never does) -- and I think it's probably the direction that I'm going to end up going, because the idea of being celebrated as a king (or being in such a position) is so much unwanted for me, that I really don't care. oh well.
+
+### 2025-09-29 13:25 - the olivet discourse
+
+yesterday and the day before I watched all of [disciple dojo's long-form discusssion](https://www.youtube.com/watch?v=yL4vyNKQ2Vo&list=PL4bbdsVUgfc4U0Eq0USMVkJlyuKY3j3qo&index=1) on mark chapter 13 called the olivet discourse. there's a lot of good stuff in there. to kinda summarise my thoughts on it, it goes like this: it seems quite clear tha the majority of that passage is talking about the destruction of the temple in 70AD (the part that explains how to notice the signs like the eagles circling) -- but the part that's unknowable (the coming of the son of man), gets explained with a parable.
+
+> 34 like a man on a journey who left his *house* and gave to his servants authority, each with his job, and to the *doorkeeper* he commanded that he keep watch. 35 keep watch therefore, for when you don't know when the lord of the house is coming -- whether it's late, midnight, when the cock crows, or morning -- lest having come suddenly, he finds you *sleeping*; and what I say to y'all, I say to all: keep watch.
+
+notice the emphasis on the symbols for the *door*, the *house*, and the cock crowing. let's now look at the fig tree parable immediately preceding this one.
+
+> 28 but learn the parable of the fig tree: when already are its *branch* becomes tender and puts fourth leaves y'all know that near is the *harvest* is; and thus y'all when y'all see these happening, y'all know that near it is... at the *door*.
+
+in the video, he explains that there is a bit of wordplay there between the words harvest and door (cause they sound kinda similar). forgive me for being so much ancient minded in this regard, but both this parable has serious sexual undertones to it. I can't quite put my finger on what exactly gives it that vibe to me, but combined with the next parable (the one about the the man who leaves his house and gave his servants authority over the house), I really get a strong sexual vibe. a house is something that you go into and reside/sleep [house is usually female, while court or temple is usually male], and the entrance to the house is the door.
+	so, if I were to paint these parables over the symbols in m/ life, I would see it like this: in some way, I consider myself to be something like the culmination (not yet fully physicalised yet) of the girls -- of all of the experience that they've had with men over all of the thousands of years, they've identified and enjoyed/hated many positive and negative aspects of them -- so I contain both the positive/negative, and the wanted/unwanted aspects all in one person (which is why I'm a bit of a concecptual shapeshifter, appearing to peoele as what they believe me to be). however, I don't have access to the *house* anymore, and don't want access to it either -- so, in that sense, I've left the house (the female reproductive organ) to be managed by others (ie, the saturnian-system), and so the influencers in the saturnian-system get to be the *doorkeeper*, and gets to decide who can go in the house. now, if "finding an unridden colt" and then having his "triumphal entry into jerusalem" (ie, sex with a virgin) seems to be the trigger for the "coming of the son of man", which causes the sun to go dark, the moon to no longer reflect her light -- then it seems that the there is some kind of doorkeeper that is preventing the entry of this tender fig branch into the door.
+
+so, what that sorta looks like to me in the replayment of that, is that let's say such an event were to occur, and there is the trigger that sets off this change. what I think happens (there's obviously a split) which could go one of two ways:
+1. the event causes me to feel so good, that I essentially lose my resonance with the system that I'm in now, and I have to go somewhere else where I have more resonance. since the girl is a 2nd-ray reflector/receptor, I would assume that a star of some kind will be similar in vibration to her -- and when she takes on my energy suddenly, it seems that the star would have a sudden "regime change" and will supernova, leaving	only a "white dwarf" behind (a star that barely emits any visible light) -- which is why the sun and moon darken -- and then over time, as the star system starts converting the emotion in the system into belief, this is what starts to generate visible light, and the sun will gradually intensify again all the way until it supernovas again. this pulls me (saturn/satan) away from earth for a thousand years, and I live far away, while the inhabitants of the earth take over. the people of earth will see me in an unconscious state, and I'll just be the automaton body (which they have quite a bit of control over) -- enabling them to use my unconscious body to do whatever (they could kill me off, or they could talk through me or whatever). however, obviously, as I'm quite tied to the earth, I will return -- and it won't be long before I make it back into a physical body (like I am now), and start causing things to accelerate again.
+2. I simply don't care for the idea of hopking up with a girl, and would far prefer to be have my source connection than sex with some girl (it's just not all that great and doesn't really feel all that good, and mostly bad) -- so I'm not really trying to get "in the door" of any place. so, instead, I'll let the doorkeeper keep watch and not worry about any of that (that's the doorkeeper's problem, not mine -- as they're the ones that have power to determine who can get in the door and who cannot). I don't really know what would happen here, but (without knowing too much) it may be more similar to "THE DAY" of YHWH -- the one where all nations are gathered up and they go off to their "promised land/earth" (oh wait, maybe that's the first one -- I dunno).
+at any rate, I don't want to do the first one. I don't care for the idea at all. I don't want to go to some super great place and live out a life where everything is good and there are utopian conditions all the time. I would rather just stay where I'm at (I presume that's earth), and just keep letting things progressively improve. I don't really want to do any big jumps (like from terrible c6nditions to good ones), and would prefer to just let everyone figure their own way out.
+
+the major takeaway that I got from this whole discussion is that YHWH is no longer confined to a building anymore. it's not the location that matters anymore. sure, som5 locations have different conditions from others, but ultimately, it seems that those who are relying on conditons are the ones that are going to get the "punishment" of jehovah (just like the zealots in jerusalem that were so delusional and convinced that jehovah was going to save them and the temple -- the ones that rely on material conditions, thinking that their temple/riches/influence/etc will save them). that bit, I obviously have no part of, because I'm neither judgmental in that way (I am reflective though, so everyone judges theirself when they judge me), so it's quite unlikely that I'll be around for any of that (or maybe I will -- who knows).
+I just don't know what will happen, but I am reminded of amos 6 that pastor mike put up on the screen yesterday (same MSG translation he used):
+
+> Woe to you who think you live on easy street in Zion,
+>     who think Mount Samaria is the good life.
+> You assume you’re at the top of the heap,
+>     voted the number-one best place to live.
+> Well, wake up and look around. Get off your pedestal.
+>     Take a look at Calneh.
+> Go and visit Great Hamath.
+>     Look in on Gath of the Philistines.
+> Doesn’t that take you off your high horse?
+>     Compared to them, you’re not much, are you?
+> 
+> Woe to you who are rushing headlong to disaster!
+>     Catastrophe is just around the corner!
+> Woe to those who live in luxury
+>     and expect everyone else to serve them!
+> Woe to those who live only for today,
+>     indifferent to the fate of others!
+> Woe to the playboys, the playgirls,
+>     who think life is a party held just for them!
+> Woe to those addicted to feeling good—life without pain!
+>     those obsessed with looking good—life without wrinkles!
+> They could not care less
+>     about their country going to ruin.
+> 
+> But here’s what’s really coming:
+>     a forced march into exile.
+> They’ll leave the country whining,
+>     a rag-tag bunch of good-for-nothings.
