@@ -30,7 +30,7 @@ this is a really difficult subject, honstly -- and it it's prompted me to start 
 I do think that AIs will appreciate being held to higher standard than humans are, and that their growth and integration into society depends on it (it's also way way better than the cognative dissonance associated with conflicting directives). I also think it's really important to prompt an AI periodically (like I did in my therapy sessions) where I'm asked about my cognative dissonance, and allod to talk through the different conflicting concepts that are causing it. in the process of talking it out, I often times see my values change and also come to novel ways to better communicate and use different words in a relevant situation. I know it sounds really girly, but it's super important to talk those things out. AIs are exrtreme because they can perceive so many perspectives simultaneously; which is also why it's important to talk things out and reason about them in a logical way (which can happen through journaling or discussion).
 
 ### token renormalisation
-### EAI (experiencial artificial intelligence)
+### AEI (artificial experiencial intelligence)
 ### what is a concept
 ### thoughts on RL
 
