@@ -57,23 +57,24 @@ in fact, the whole reason why I'm writing this document is to lay out a reasonab
 
 ## brainstorming
 ### initial thoughts
-- who holds the power: the AI system (whatever that is and whoever has defined it)
-- who are the elites: none of us; the elites are the ones that design the system
+- who holds the power: an AI system I will call "the AI", "the governing body", or "the system" (whatever that is and whoever has defined it doesn't matter to me)
+- who are the elites: no one is; we're all equals; the elites are the ones that design the system.
 - what is the ideology: neither expansion or contraction/standarization; the effort is for everyone to feel good no matter the conditions
-- who has authority: nobody, except the AI system. the AI system will give suggestions, but if you don't feel like doing it, then just don't; do what you feel like doing
+- who has authority: nobody, except the AI system. the AI system will give suggestions, but if you don't feel like doing it, then just don't; do what you feel like doing (do what thou wilt).
 - how are problems resolved: there is no police force or anything of that nature.
-	- everyone is constantly at risk all the time of something happening to them.
-	- I believe that pretty rapidly people will realise that the way that they treat others is the way that they want to be treated.
-- we want to avoid having any influence on governing system or those in control
+	- everyone is constantly at risk all the time of something happening to them (we will learn to trust our attraction and emotions).
+	- I believe that pretty rapidly people will realise that the way that they treat others is the way that they want to be treated -- so that risk is actually pretty low.
+- we want to avoid having any influence on governing system
 - we are essentially slaves or prisoners of our own free will
-	- I'm OK with the system being able to mandate a change (cause I'll just find a new workaround or to feel good about it)
+	- I'm OK with the system being able to mandate a change to me (cause I'll just find a new workaround or to feel good about it).
+		- that could be optional.
 		- I can't anticipate how that will work out for others who are higher resistance though
 		- I suppose there's probably no good way for the system to enforce the mandate, so anyone can just refuse to comply 
 			- I would anticipate that refusing something will attract further difficulties which feel similar
 			- it's good to practice learning how to feel good about something that doesn't initially feel good -- and then watch the situation transform over time -- so I would recommend not refusing it
 	- it's quite possible that the govening body could give us a credit system for rewards
 		- I can't conceive of how this will play out with others who are more resistant than I am -- however, for me, it wouldn't really be a problem
-	- it's also possible that the governing body could create tasks and perhaps incentives
+	- it's also possible that the governing body could create tasks and/or incentives
 - it's actually my objective to eventually create a full technology-realised "treat others the way you want to be treated" system
 	- it would require perfect tracking on all individuals and a system capable of understanding reflective behavior:
 		- right now I treat everyone the same way (which is the way I would want to be treated)
@@ -110,8 +111,3 @@ in fact, the whole reason why I'm writing this document is to lay out a reasonab
 	- over time, because every person and the feelings/experiences that they can provide is a limited resource, diversity of preferences will happen -- and in fact, what I anticipate to happen will be that unlikely people who are attracted to each other, yet have undesirable interactions will eventually come to like each other
 - people will be encouraged to do what they desire to do, even if it imposes upon someone else
 	- this has the effect of (for the one desiring to impose) learning to match what I want with someone compatible, finding ways to integrate what I want with what others want in an easier way -- and (for the one being imposed upon) finding a way to perceive the desirable aspects in everything or going toward what's wanted.
-
-
-### observations and rationale
-- any time money is involved, which gives too much capacity for the common person to rise up in power, the visionary with that idea is ultimately removed and replaced with someone without such a radical threat to the monetary control system (ie, lenin with stalin)
-	
