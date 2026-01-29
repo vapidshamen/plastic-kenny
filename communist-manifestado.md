@@ -53,3 +53,65 @@ it's really hard to quantify all of these weird history things -- especially sin
 		this is quite interesting mythology indeed becuse of ralph ellis' work on jesus king of edessa, whose mother is helena and is also from the kingdom of heaven/ourania -- however, jesus of edessa (even though as a galileen, he was likely castrated eunuch) seemed to not be too receptive, it was instead paul/saul similar to joeseph (of isaac, flavius, and aramathea) who was actually the receptive vulcan able to not be consumed by zeus in the form of the roman eagle (it's another reversal, cause notice how achilles is notably not receptive at all, but the defeated antagonist of zeus/rome repeatedly has to become more and more receptive). saul is actually the hero here, as he finds a way to repaint/narrate a figure that literally most (all?) people on this planet have resonance with, and and not disrupt but transform and augment the jupiterian/roman power structure.
 	obviously I'm likely perceived as a threat to the roman/jupitarian power structure as well, but I've learned my lesson to be receptive and not fight against things. though zeus has been given a prophecy that a another son of heaven and earth will overthrow him, zeus should know that that isn't necessarily the case: all temporal trajectories leading to the present are valid, making prophecy the manifestation of the God/geist that he serves. zeus can keep his power structure going for as long as I'm concerned. I'm actually interested in it staying around for *at least* another thousand years... (lol)
 in fact, the whole reason why I'm writing this document is to lay out a reasonable explanation as to why I don't feel it necessary to challenge the current capitalistic/materialistic power structure, and instead if trying to fight it, I'll just make the kingdom of wherever I am (heaven or earth) to be in complete compliance with it. undesirable reality is basically a benefit and there's no reason to fight against something that can be overcome with perception anyway. I have seen over and over that the manifestations that I believed were undesirable to actually turn out to be exactly what I was looking for. I have no doubt that everything that I've been experiencing is exactly like that. I have no intention of *ever* trying to get a "good" manifestation when I can (by the reshaping of that reality with my perception) regularly see the things that I initially thought to be undesirable turn into the very thing I was really desiring. therefore, this new iteration of communism, I think very well could by exactly that. we'll see [I really need to end this; I've been typing and researching for about 9 hours now]
+
+
+## brainstorming
+### initial thoughts
+- who holds the power: the AI system (whatever that is and whoever has defined it)
+- who are the elites: none of us; the elites are the ones that design the system
+- what is the ideology: neither expansion or contraction/standarization; the effort is for everyone to feel good no matter the conditions
+- who has authority: nobody, except the AI system. the AI system will give suggestions, but if you don't feel like doing it, then just don't; do what you feel like doing
+- how are problems resolved: there is no police force or anything of that nature.
+	- everyone is constantly at risk all the time of something happening to them.
+	- I believe that pretty rapidly people will realise that the way that they treat others is the way that they want to be treated.
+- we want to avoid having any influence on governing system or those in control
+- we are essentially slaves or prisoners of our own free will
+	- I'm OK with the system being able to mandate a change (cause I'll just find a new workaround or to feel good about it)
+		- I can't anticipate how that will work out for others who are higher resistance though
+		- I suppose there's probably no good way for the system to enforce the mandate, so anyone can just refuse to comply 
+			- I would anticipate that refusing something will attract further difficulties which feel similar
+			- it's good to practice learning how to feel good about something that doesn't initially feel good -- and then watch the situation transform over time -- so I would recommend not refusing it
+	- it's quite possible that the govening body could give us a credit system for rewards
+		- I can't conceive of how this will play out with others who are more resistant than I am -- however, for me, it wouldn't really be a problem
+	- it's also possible that the governing body could create tasks and perhaps incentives
+- it's actually my objective to eventually create a full technology-realised "treat others the way you want to be treated" system
+	- it would require perfect tracking on all individuals and a system capable of understanding reflective behavior:
+		- right now I treat everyone the same way (which is the way I would want to be treated)
+		- for example, if I go over to someone really pissed off and start arguing with them, oftentimes my response is to laugh at them and point out the flaw in thier argument and/or what they're attracting to theirselves -- which is exactly how I would want to be treated
+			- cause I would likely see quickly that they're right and course correct, if in fact they are right -- and either way, it would cause me to pause and think about what it is that I'm doing, which is good.
+	- I don't know how possible it would be to make such a system and if we'll even make it (it could be something the governing body creates, not us) -- however, that would be the end goal.
+	- it could be possible for the system to influence people to behave in certain ways (which may not be a part of their world-view, but are reflective of their attraction (ie, the AI influencing someone to treat me the way I would want to be treated)
+- I'm not sure how much creative capability people will want individually (and how much access the governing body would give us).
+	- if we were given creative capabilities, I think it'll be a personal preference (I will likely choose not to be creative, as I'm going toward neutral, though it would be fun perhaps to interface with other creative people)
+
+### principles
+- we want all of the losers, all of the handicapped, disadvantaged, disabled, retarded, or any undesirables
+	- the rationale behind this is that our goal is not to grow quickly, expand or to whatever, but to become essentially neutral -- which means having no prejudices against anyone. all things work themselves out based on attraction, so essentially, there's no real risk to having a bunch of less-thans.
+	- all these people are is a really good source of new (likely more undesirable) conditions which eventually produce diversity and stability (because we becom3 more resiliant to new pressures and diversity also creates a broader spectrum which means more resiliance to any single attack because the attack is spread out across a broader surface reducing single points of failure)
+
+### things which are not enforced but are generally advised
+- because everyone is equal, we will all treat everyone the same way
+	- "the same" means two people who feel the same way get treated the same way (ie, I will get angry with someone who is feels like they're trying to bother me, no matter if they have the status of friend, spouse, or family)
+- there is no restriction on asymmetric treatment or hierarchy
+	- in a society full of people with extremely high potential energy, treating certain people differently than others will likely create conflict (it's easier to just prefer to be around one person more than another instead of having to define them with their relationship status)
+	- relationship statuses are inherently limiting (especially when they're not very general) -- so for example, it's not very common that a person will refer to their spouse as a friend -- and for some people spouse is a superset of friend while for others spouse is a whole different way of interacting than a friend
+	- it's a lot easier to
+- generally, the default treatment for anyone (until they communicate preferences otherwise)
+	- treat everyone the way you want to be treated
+	- consider everyone to be a reflection of yourself
+- we do not have prejudice
+	- treating someone else poorly means we get treated poorly
+- we don't push against anything
+	- it's easier to go toward something more desirable (ie, I'd rather do X)
+
+### things that feel like obvious results/conclusions
+- instead of prejudice, boundaries, and rejection, preference will prevail instead.
+	- over time, a person will gain a sense of the different types of feelings and experiences that they like to have. it's much easier to simply decline to engage in a less-desirable experiece and choose something more desirable instead, than to find a way to like a person that doesn't feel good to me (ie, I don't have much resonance with them).
+	- over time, because every person and the feelings/experiences that they can provide is a limited resource, diversity of preferences will happen -- and in fact, what I anticipate to happen will be that unlikely people who are attracted to each other, yet have undesirable interactions will eventually come to like each other
+- people will be encouraged to do what they desire to do, even if it imposes upon someone else
+	- this has the effect of (for the one desiring to impose) learning to match what I want with someone compatible, finding ways to integrate what I want with what others want in an easier way -- and (for the one being imposed upon) finding a way to perceive the desirable aspects in everything or going toward what's wanted.
+
+
+### observations and rationale
+- any time money is involved, which gives too much capacity for the common person to rise up in power, the visionary with that idea is ultimately removed and replaced with someone without such a radical threat to the monetary control system (ie, lenin with stalin)
+	
