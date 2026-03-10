@@ -281,6 +281,7 @@ el resumen de todo este discurso [TODO - revisalo y corta la partes repetitivas]
 3. tambien me pregunto que pienso sobre la inteligencia artificial. desafortunadamente, le intentaba explicar (con poco tiempo) con demasiados detalles. aqui (como q tengo tiempo suficiente) me puedo explicar mi punto de vista bien
 [TODO]
 
+## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
 ## el bucle de emociones/deseos y pensamientos/accion
 
