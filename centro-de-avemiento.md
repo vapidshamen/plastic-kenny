@@ -313,6 +313,10 @@ esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. 
 > 9 - because of which also the God/emperor extremly [lifted him up | promoted/exaulted him], having bestowed to him a name, the biggest name his authority [can give], higher than any [other] name 
 > 10 - so that, to/in the name of jesus, every knee will bend [on uranus | in the sky], and on earth, and under the ground --
 > 11 - and every language/tongue will have to [say the same thing | agree] to whom [is] SUPREME AUTHORITY JESUS [COVERED IN OIL] to the expectation of God-Father
+> 12 - so too therefore, beloved of mine, just as always you've heard from below, not like when I [came to you | got closer to you] by myself, but [instead] now much more in my absence, in the middle of awe and trembling, work out your salvation
+> 13 - for God es the one activated in you, the desire and the active [part] above the good wooden stick
+> 14 - do everything without dissatisfaction and back-and-forth discussions
+> 15 - that you will have been unmixed and without fault, descendents of God without blemishes in the middle of a generation which having been completely twisted and bent, in which you all are shining as [light-bringers | lucifers | stars/luminaries] in ordered/harmonious arrangement
 
 > 5 - sean conscientes [de] esto: que y/tambien en consegrado jesus,
 > 6 - cuales en la naturaleza/similitud de dios, siendo [el descendente de | lo mismo que] dios,
@@ -321,6 +325,14 @@ esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. 
 > 9 - por lo cual, tambien el dios/emperador, super levantandose a al, habiendo ortogado a el, un nombre, el mayor en autoridad sobre todos los nombres
 > 10 - para que al nombre de jesus, toda rodilla se doble [en urano | en el cielo] y sobre la tierra y bajo tierra
 > 11 - y todas linguas/lenguas habran de [decirse lo mismo | estar de acuerdo] a quien [es] AUTORIDAD SUPREMO JESUS [CUBIERTO DE ACIETE] a la expectativa de Pater-Dios
+> 12 - asi que amados mios asi como siempre se habian oido debajo, no como en el acercamiento de mi solo, pero ahora mucho mas en la ausencia de mi, en medio de asombro y de tremblar de ellos mismos, obrad su salvacion
+> 13 - por dios es el [que esta] activando en vosotros el deseo y el activo por encima de su buena madera
+> 14 - haced todo sin insatisfaccion, estira y afloja
+> 15 - para que hubieseis sido sin tachas y lios/revueltos, descendentes de dios sin manchas en medio de una generacion la cual fue completamente torcida y sinuosa, entre los cuales vosotros brillais [como portadores de luz | unas lumbreras] en el arreglo ordenado/armoniaco
+
+[una cosa interesante -- es que haciendo la investigacion sobre "Pater-Dios", habia notado q hay mucha similitud a "Pater-Zeus" xq "θεοῦ πατρός" es "patros-teos" (muy similar)]
+
+
 
 ### filipenses 1:3-11
 > 3 - I would be thankful to God of mine above all, for the proposal/implication/point [from you | you gave me]
