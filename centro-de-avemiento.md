@@ -310,13 +310,21 @@ esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. 
 > 4 - always in all the desire from me, beyond every pleasure with you, the desire of being in playfulness
 > 5 - as well as for the intercourse/communion with you in the exclamation from the first day until the now [moment]
 > 6 - having been pursuaded himself, he began pouring in you a well-fitting work, [which] having to climax all the way at the end of the day of jesus the annointed one
-> 7 - 
+> 7 - accordingly, it is fitting for me to be mindful of this more than all of you, thanks to the possessing of me in the hearts of you all; in both the relationship of my own apology and affirmation of the exclamation, you are all cohabiting with me in delight
+> 8 - witnesses for me to God, how I yearn for you all to the inner parts of my body/emotion/compassion, the consecrated jesus
+> 9 - and with this I promise to, so that the love from you all, [becomes] more and more, overflowing in super-knowing/over-acquaintance and super-perception/vision
+> 10 - for the approval of you all, for the bearing-through, so that you shall be sincere and without anti-cryers until/in the day of the consecrated [one]
+> 11 - having been filled with the fruits of righteousness from jesus the consecrated [one] for the glory and praise of God
 
 > 3 - aprecie yo el dios de mi sobre todo el fondo/punto/consejo de vosotros
 > 4 - siempre en lo que me hubieseis deseado de mi, mas alla de todos los placeres con vosotros, el deseo de estando en caracter jugeton
 > 5 - y ademas por la comunion/relacion/coito con vosotros en la exclamacion desde el primer dia hasta el ahora
 > 6 - habiendo estado convencido a su mismo, que el vertia en ti una obra y habia habido de acabar al fondo del dia del ungido jesus
-> 7 -
+> 7 - asi que me cabe bien ser consciente de esto mas que vosotros, gracias a la posesion de mi en los corazones de vosotros; ambos en la reacion de mis palabras de vuelta y afirmacion sobre la exclamacion, vosotros estan en el mismo lugar conmigo en deliete
+> 8 - testigos por mi a dios, como yo anhele todos vosotros a mis partes interiores de mi cuerpo/emocion/compasion, el consegrado jesus
+> 9 - y con esto yo prometo a, para que el amor de vosotros, hasta mas y mas sobreabunden en sobreconocimiento y toda percepcion
+> 10 - por la aprobacion de vosotros, por el aguante atravesando, para que sean sinceros y sin contra-llorantes hasta/en el dia del consegrado.
+> 11 - habiendo estado llenado [con] los frutos de rectitud por jesus el consegrado por la gloria y alabanza de dios.
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
