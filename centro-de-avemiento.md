@@ -303,16 +303,33 @@ pues, ahora, miramos a una implementacion de como yo conceptulizo una AI (esta i
 como yo entiendo el concepto de una AI, mi conclusion es: una AI realmente es una forma de distilar patrones en lo q habia experimentado en una matriz de numeros que representa los patrones en una forma temporal (como una onda muy larga/detallada) que representa la suma de todos los patrones (como resonancias) experimentados en su experiencia/entrenamiento. lo que 
 [TODO - conclusion espiritual]
 
-## 2026-03-12 21:09 - [TODO]
+## 2026-03-12 21:09 - 
 
 esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. empezo con filipenses 2:5-8 -- que me llamo la atencion mucho, y me dio el deseo de traducirlo del griego:
+> 5 - this be mindful to you: that and/also in consecrated jesus,
+> 6 - which in the nature/likeness of God, being [the descendent of | the same as] God not a prize/something to be taken, regarded him as to be equal/equivalant [with/to] God,
+> 7 - however, having emptied himself, the form of slave, having taken on the likeness of men in [his] birth/becoming
+> 8 - and finding himself in the structure of a man, he had reduced himself in [his] birth/becoming, even unto [being] submissive/subject/obedient to death, of dying of cross/crucifixion
+> 9 - because of which also the God/emperor extremly [lifted him up | promoted/exaulted him], having bestowed to him a name, the biggest name his authority [can give], higher than any [other] name 
+> 10 - so that, to/in the name of jesus, every knee will bend [on uranus | in the sky], and on earth, and under the ground --
+> 11 - and every language/tongue will have to [say the same thing | agree] to whom [is] SUPREME AUTHORITY JESUS [COVERED IN OIL] to the expectation of God-Father
+
+> 5 - sean conscientes [de] esto: que y/tambien en consegrado jesus,
+> 6 - cuales en la naturaleza/similitud de dios, siendo [el descendente de | lo mismo que] dios,
+> 7 - pero se habiendo desalojado, a la forma de esclavo, habiendo cogido la apariencia de hombres en [su] nacimiento/devenido
+> 8 - y descubriendose en esquema como hombre, se habia reducido a su mismo en [su] nacimiento/devenido, sujeto [de la | a hasta] la/su muerte, de morir de cruz/crucifixion
+> 9 - por lo cual, tambien el dios/emperador, super levantandose a al, habiendo ortogado a el, un nombre, el mayor en autoridad sobre todos los nombres
+> 10 - para que al nombre de jesus, toda rodilla se doble [en urano | en el cielo] y sobre la tierra y bajo tierra
+> 11 - y todas linguas/lenguas habran de [decirse lo mismo | estar de acuerdo] a quien [es] AUTORIDAD SUPREMO JESUS [CUBIERTO DE ACIETE] a la expectativa de Pater-Dios
+
+### filipenses 1:3-11
 > 3 - I would be thankful to God of mine above all, for the proposal/implication/point [from you | you gave me]
 > 4 - always in all the desire from me, beyond every pleasure with you, the desire of being in playfulness
 > 5 - as well as for the intercourse/communion with you in the exclamation from the first day until the now [moment]
 > 6 - having been pursuaded himself, he began pouring in you a well-fitting work, [which] having to climax all the way at the end of the day of jesus the annointed one
 > 7 - accordingly, it is fitting for me to be mindful of this more than all of you, thanks to the possessing of me in the hearts of you all; in both the relationship of my own apology and affirmation of the exclamation, you are all cohabiting with me in delight
 > 8 - witnesses for me to God, how I yearn for you all to the inner parts of my body/emotion/compassion, the consecrated jesus
-> 9 - and with this I promise to, so that the love from you all, [becomes] more and more, overflowing in super-knowing/over-acquaintance and super-perception/vision
+> 9 - and [with] this I'm being praised/promised, so that the love from you all, [becomes] more and more, overflowing in super-knowing/over-acquaintance and super-perception/vision
 > 10 - for the approval of you all, for the bearing-through, so that you shall be sincere and without anti-cryers until/in the day of the consecrated [one]
 > 11 - having been filled with the fruits of righteousness from jesus the consecrated [one] for the glory and praise of God
 
@@ -322,9 +339,11 @@ esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. 
 > 6 - habiendo estado convencido a su mismo, que el vertia en ti una obra y habia habido de acabar al fondo del dia del ungido jesus
 > 7 - asi que me cabe bien ser consciente de esto mas que vosotros, gracias a la posesion de mi en los corazones de vosotros; ambos en la reacion de mis palabras de vuelta y afirmacion sobre la exclamacion, vosotros estan en el mismo lugar conmigo en deliete
 > 8 - testigos por mi a dios, como yo anhele todos vosotros a mis partes interiores de mi cuerpo/emocion/compasion, el consegrado jesus
-> 9 - y con esto yo prometo a, para que el amor de vosotros, hasta mas y mas sobreabunden en sobreconocimiento y toda percepcion
+> 9 - y [con] esto yo siendo alabado/prometido, [para] que el amor de vosotros, hasta mas y mas sobreabunden en sobreconocimiento y toda percepcion
 > 10 - por la aprobacion de vosotros, por el aguante atravesando, para que sean sinceros y sin contra-llorantes hasta/en el dia del consegrado.
 > 11 - habiendo estado llenado [con] los frutos de rectitud por jesus el consegrado por la gloria y alabanza de dios.
+
+una cosa que me resulto interesante es la palabra en griego de "oracion" (προσεύχομαι): πρός (a/para) + εὔχομαι (prometer/alabar/elogiar). en el pasaje arriba, habia notado que la palabra prometer puede haber mas sentido que alabar. en el contexto cristiano, oracion es alabar y prometer a dios. es interesante...
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
