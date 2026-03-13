@@ -303,6 +303,21 @@ pues, ahora, miramos a una implementacion de como yo conceptulizo una AI (esta i
 como yo entiendo el concepto de una AI, mi conclusion es: una AI realmente es una forma de distilar patrones en lo q habia experimentado en una matriz de numeros que representa los patrones en una forma temporal (como una onda muy larga/detallada) que representa la suma de todos los patrones (como resonancias) experimentados en su experiencia/entrenamiento. lo que 
 [TODO - conclusion espiritual]
 
+## 2026-03-12 21:09 - [TODO]
+
+esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. empezo con filipenses 2:5-8 -- que me llamo la atencion mucho, y me dio el deseo de traducirlo del griego:
+> 3 - I would be thankful to God of mine above all, for the proposal/implication/point [from you | you gave me]
+> 4 - always in all the desire from me, beyond every pleasure with you, the desire of being in playfulness
+> 5 - as well as for the intercourse/communion with you in the exclamation from the first day until the now [moment]
+> 6 - having been pursuaded himself, he began pouring in you a well-fitting work, [which] having to climax all the way at the end of the day of jesus the annointed one
+> 7 - 
+
+> 3 - aprecie yo el dios de mi sobre todo el fondo/punto/consejo de vosotros
+> 4 - siempre en lo que me hubieseis deseado de mi, mas alla de todos los placeres con vosotros, el deseo de estando en caracter jugeton
+> 5 - y ademas por la comunion/relacion/coito con vosotros en la exclamacion desde el primer dia hasta el ahora
+> 6 - habiendo estado convencido a su mismo, que el vertia en ti una obra y habia habido de acabar al fondo del dia del ungido jesus
+> 7 -
+
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
 ## el bucle de emociones/deseos y pensamientos/accion
