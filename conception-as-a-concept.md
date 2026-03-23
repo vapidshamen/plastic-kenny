@@ -6,7 +6,6 @@ se, I'm editing my [responses to gloria](/centro-de-avemiento.md#2026-03-01-2359
 - *nothing* is a point so it's abstract; it doesn't have volume; it is vibration.
 - *something* is an agglomerate of *nothings/points*
 - *point* is something that's a derivative of the nothing; it's also abstract, doesn't have volume, and is pure vibration.
-- *concept* is an agglomerate of *points*. its
 - *medium* is the perception of *something/nothing* -- where itself exists everwhere.
 - *universe* is the *medium* of *nothing*, everywhere.
 - *interaction* happens when *something/nothing* perceives the *medium* all around itself. everything that it perceives interferes with itself.
