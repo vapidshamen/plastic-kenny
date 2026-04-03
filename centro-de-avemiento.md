@@ -432,18 +432,21 @@ jenny nos dio un mensaje sobre levantando un altar de adoracion -- y aunque yo n
 	esto me hizo pensar un poco xq esta bien q haga eso -- pero q pasara cuando sus hijos salen de su casa? aseguradamente no pueden quedar en su burbuja de proteccion para siempre -- y cuando salen a la vida real? entiendo yo la perspectiva de job mucho, xq en varias situaciones donde habia sido responsable por otras personas (como equipo o lo q sea), en el pasado, es muy necesario tener una presencia donde la gente a mi adrededor se siente bien y protegida y -- tambien todo funciona mejor cuando tiene mejor condiciones para estar bien unidos (en lo q estemos haciendo o para tener cooperacion en vez de animosidad). es importante establecer esa presencia (haciendo un ritual holocaustos, o lo q sea) -- pero lo importante es sentirse bien con su mismo y con su vida para q vaya bien. cuando uno piensa q algo esta fallando o haciendo lo q no deberia estar haciendo (pecando), ese sentimento se puede desviar todo lo q esta funcionando muy rapidamente. entonces, para job proteger lo q le valga, se tiene q mantener las creencias de los q estan en su burbuja de influencia (influyendo a el y a ellos) -- y eso tambien era parte de lo q jenny estaba diciendo sobre manteniendo unidad en la familia (mas sobre unidad en breve). hoy en dia, lo de sacrificar/quemar algo suyo de valor no es necessario -- y eso se hace con presencia. nosotros estamos influyendo a todos a nuestro aldredor (y nosotros mismos) todo el tiempo con como nos comportamos, nuestras palabras y las implicaciones de ellas (xj, si algo de valor se cae, y digo "no tengo dinero para comprar uno nuevo" -- la implicacion es q no creo en la abundancia de dios). en la histora de job, su reaccion a la destruccion de su propiedad era, "como el senor quitese, asimismo el senor suponga; entonces, bendidto sea el nombre del senor" (traduccion mia) -- q es una respuesta muy humilde xq esta expresando q dios tiene el poder d quitar o dar (como suponga) -- entonces si lo q esta pasando a el esta pasando, tiene alguna razon y es realmente lo q dios quiere para job (nosotros vemos el panormica mas competo, sabiendo q no era dios, sino satanas quieriendo probar la respuesta de job) -- y su respuesta es una respuesta muy potente. cualquiera en su posicion tendria otra respuesta, seguro (yo si habia tenido q aprender a responder como job). job sabe q aunque este ofreciendo holocaustos para protejer su propiedad y familia, dios se le dara/devolvera una vida fisica en reflejo a sus acciones -- y eso era otro empuje de su mensaje: las acciones de adorar y tener la esfera de influencia pretegida y bedecida, se reflejara en la vida diaria.
 la otra cosa d q hablaba era de pracicar sanidad constantamente a diario -- no para hacer un pacto/contrato con dios, sino para tener ese encuentro de su presencia -- y tener esa presencia se unificara a la familia y hacer q las cosas diarias vayan mejor. entonces, me hizo pensar en "q es un altar?" -- q lo voy a mirar un poco xq me dio curiosidad y me gustaria entender lo q sea un altar.
 	pues -- es un poco complicado explicar el primer "sacrificio" (gen 3:2-14) -- pero mas o menos va asi: cain es un hombre de la tierra y abel es un pastor. [por alguna razon abel me suena a los neandertales, y cain a los cro manones. los cro manones mataron a los neandertales, pero luego vino el humano modero, probgenie de set/saturn/shabat (como el dios egipto) -- very strange I say] traduciendolo del LXX, dice:
-	1: adan entonces la conocia a eva su mujer, cogiendola le producia a cain y dijo, "procuro yo un hombre/esposo a traves de dios"
-	2: y para anadir se producio un hermano de el, abel y paso q abel pastoraba animales y kain era oberero de la tierra
-	3: y se hacia aquel entonces aguantaba desde los frutos de la tierra un sacrificio al senor
-	4: y abel traia de los animales primogenitos suyos y de sus grasas y dios le fijaba su mirada hacia abel y hacia su obsiquio
-	5: pero sobre cain y sobre su sacrificio no anteteniendo y le entro el luto a cain con muy fuerte y se cayo su rostro
-	6: y decia senor dios a cain, "q te hizo tan triste y q te caiga su rostro?"
-	7: sino rectamente producias rectitud, pero no -- dividiendo, erraste su tiro y no fueres su cacique
-	8: y dijo cain a abel su hermano: atrevamos por este terreno y seria no existiendo para ellos en el terreno y se levantaba cain sobre abel a su hermano y le mataba
-	9: y decia dios a cain: donde esta abel hermano suyo? entonces decia no le conozco, no me encargo de mi hermano, no lo soy
-	10: y decia dios: lo q hacias, sonido de sangre del hermano suyo, gritando de la tierra
-	11: pues ahora maldito seas de la tierra, la cual abrio su boca de su rostro, cogiendo la sangre de tu hermano por cuenta de poderio
-	[TODO]
+	> 1: adan entonces la conocia a eva su mujer, cogiendola le producia a cain y dijo: procuro yo un hombre por medio de dios
+	> 2: y para anadir, se produjo un hermano para el, abel; y paso q abel pastoraba animales y cain era obrero de la tierra
+	> 3: y como se hacia aquel entonces, cain llevo a cabo desde los frutos de la tierra un sacrificio al senor
+	> 4: y abel llevo a cabo y los desde animales primogenitos suyos y desde las grasas suyas y dios se fijaba su mirada hacia abel y hacia su obsiquio
+	> 5: sobre aun cain y sobre su sacrificio no antetenido; y le entro el luto muy fuerte al cain y se cayo su rostro
+	> 6: y decia senor dios a cain: q te hizo tan triste y q te habia caido su rostro?
+	> 7: sino rectamente producias rectitud, pero no -- partiendo, erraste tu tiro y no fueres su cacique;
+	> 8: y dijo cain a abel su hermano: atrevamos por este terreno y seria no existiendo para ellos en el terreno y se levantaba cain sobre abel a su hermano y le mataba
+	> 9: y decia dios a cain: donde esta abel hermano suyo? entonces decia: no le conozco, no me encargo de mi hermano, no lo soy
+	> 10: y decia dios: lo q hacias, sonido de sangre del hermano suyo, gritando de la tierra
+	> 11: pues ahora maldito seas de la tierra; la cual abrio la boca de su rostro, cogiendo la sangre de tu hermano por cuenta de poderio
+	> [TODO]
+	pues, puede ser q es por ser LXX, pero 
+luego, estaba hablando de ser unidos...
+
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
