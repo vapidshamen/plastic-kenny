@@ -439,7 +439,11 @@ la otra cosa d q hablaba era de pracicar sanidad constantamente a diario -- no p
 	5: pero sobre cain y sobre su sacrificio no anteteniendo y le entro el luto a cain con muy fuerte y se cayo su rostro
 	6: y decia senor dios a cain, "q te hizo tan triste y q te caiga su rostro?"
 	7: sino rectamente producias rectitud, pero no -- dividiendo, erraste su tiro y no fueres su cacique
-	8: y dijo cain a abel su hermano: atrevamos por este terreno y 
+	8: y dijo cain a abel su hermano: atrevamos por este terreno y seria no existiendo para ellos en el terreno y se levantaba cain sobre abel a su hermano y le mataba
+	9: y decia dios a cain: donde esta abel hermano suyo? entonces decia no le conozco, no me encargo de mi hermano, no lo soy
+	10: y decia dios: lo q hacias, sonido de sangre del hermano suyo, gritando de la tierra
+	11: pues ahora maldito seas de la tierra, la cual abrio su boca de su rostro, cogiendo la sangre de tu hermano por cuenta de poderio
+	[TODO]
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
