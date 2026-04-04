@@ -443,8 +443,12 @@ la otra cosa d q hablaba era de pracicar sanidad constantamente a diario -- no p
 	> 9: y decia dios a cain: donde esta abel hermano suyo? entonces decia: no le conozco, no me encargo de mi hermano, no lo soy
 	> 10: y decia dios: lo q hacias, sonido de sangre del hermano suyo, gritando de la tierra
 	> 11: pues ahora maldito seas de la tierra; la cual abrio la boca de su rostro, cogiendo la sangre de tu hermano por cuenta de poderio
-	> [TODO]
-	pues, puede ser q es por ser LXX, pero 
+	> 12: entonces obraras en la tierra y q anaden a los esfuerzos de ellos para darte el gimiendo y tremor estaras sobre la tierra 
+	> 13: y dijo cain hacia el senor mas alto: mi crimen me mandaria yo fuera [de aqui]
+	> 14: y si me expulses yo hoy sobre el rostro de la tierra y sobre ti me ocultare y estare gimiendo y tremblando sobre la tierra y encontrandome, me mataran
+	> 15: y dijo a el senor dios: no asimismo el matando de cain, siete venganzas se aflojaran y puso senor dios la marca a cain para [que] no se saquen/levantan ellos mismos encuentros con el
+	> 16: parto entonces cain sobre el rostro de dios y ocupo en tierra de nod/errante/trembloroso frente a eden/paradiso
+	pues, no me queda muy claro es un sacrificio...
 luego, estaba hablando de ser unidos...
 
 
