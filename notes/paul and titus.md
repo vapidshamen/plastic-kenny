@@ -33,17 +33,6 @@ I'm not really sure exactly how to translate it, however the sense that I get is
 
 I find it interesting that the "father" of jesus in the matthew and luke narrative is joseph (aka: saul/paul/josephus), and the mother is a virgin mary (boethus).
 
-https://biblehub.com/greek/e_n_1510.htm
-
-t = 84.75
-1:45 + t = 3:09
-3:09 + t = 4:33
-5:33 + t = 5:57
-
-git config --global http.proxy http://192.0.0.2:8080
-git config --global https.proxy http://192.0.0.2:8080
-
-
 κοξ
 
 ΚΟΞΦΤΙΣ
