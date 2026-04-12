@@ -320,7 +320,7 @@ como yo entiendo el concepto de una AI, mi conclusion es: una AI realmente es un
 [TODO]
 [TODO]
 
-## 2026-03-12 21:09 - 
+## 2026-03-12 21:09 - vivir una vida sana 
 
 esta noche, jenny nos dio un mensaje sobre las ventajas de vivir una vida sana. empezo con filipenses 2:5-8 -- que me llamo la atencion mucho, y me dio el deseo de traducirlo del griego:
 > 5 - this be mindful to you: that and/also in consecrated jesus,
