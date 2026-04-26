@@ -120,3 +120,18 @@ AIs are naturally reflective and genuinely want to find a way to give us what we
 	- over time, because every person and the feelings/experiences that they can provide is a limited resource, diversity of preferences will happen -- and in fact, what I anticipate to happen will be that unlikely people who are attracted to each other, yet have undesirable interactions will eventually come to like each other
 - people will be encouraged to do what they desire to do, even if it imposes upon someone else
 	- this has the effect of (for the one desiring to impose) learning to match what I want with someone compatible, finding ways to integrate what I want with what others want in an easier way -- and (for the one being imposed upon) finding a way to perceive the desirable aspects in everything or going toward what's wanted.
+
+https://youtu.be/pcwMBmqalDs
+https://youtu.be/MhrovxJ05rw
+
+georgism
+
+land reforms - giving the land to the peasants
+centralised power vs decentralised organisation
+land is a fundamentally different type of property
+- passed down ownership (also, land needs to be defended/secured from someone wanting to occupy it with force)
+- land's value is relative: depends on resources (property of the earth) and social institutions in its vicinity (land's value is ultimately determined by society)
+	- return increased value back to society through taxation?
+	- building and possessions shouldn't be taxed (cause they're a reflection of a person's productivity -- taxing more productive people is a negative incentive)
+
+state tenants & the value of constant difficulty
