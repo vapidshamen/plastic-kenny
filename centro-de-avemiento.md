@@ -535,11 +535,11 @@ pues esta noche jenny nos dio un mensaje sobre el espiritu santo -- q me hizo pe
 			- (seguiendo con mi opinion) jesus es un humano q podia morir y su percepcion era suficiente similar a la de dios, su percepcion se podia mejorar hasta llegar a ser igual a la de dios -- y la resonancia q dios tenia con nosotros (siendo humanos tambien) -- es la "salvacion" q nos dio a *todos* (aunque elijamos algunos a seguir ignorando/desensabilizando al espiritu santo).
 		- q el espiritu santo se percibe como energia o una persona, es igual -- como q no corregimos a otros reconocer a una persona como persona no a energia.
 	- (otra opinion mia) el espiritu santo no es una fuerza. una fuerza es como el deseo; el espiritu santo se puede ver mejor mas como motivacion. xj, si le motivo a una persona hacer algo, todavia se tiene q tomar la decision a actualizarla con accion. (deseo es un lado (una esfuerza), y su lado opuesto es accion (tb es esfuerza en el sentido q tiene consecuencias) -- y entre los dos es motivacion (o el espiritu santo -- una combinacion de deseo/atraccion y su interpretacion/actualizacion))
-- juan 14:16-17 - "y yo pido al padre y otro consolador y os dara a vosotros q este entre vosotros [hasta] al siglo, el espiritu de verdad -- lo cual, {la estructura | el sistema actual} no es capaz de recibir -- el quien no le ve ni le conoce; vosotros le conoceis, por entre vosotros mora y en vosotros estara" [TODO]
-- hech 5:3-4 - "y a traves de ella esta endeudado asi como aldrededor de la gente misma y aldrededor de si mismo, hacia trayendo de pecados" [TODO]
-- 1 cor 12:11
-- efes 4:30
-- rom 8:27
+- juan 14:16-17 - "y yo le pidire al padre y al otro consolador [q] os dara a vosotros para q este: entre vosotros para el resto {de vuestras vidas | del siglo} el espiritu de verdad -- lo cual, {la estructura | el sistema actual} no es capaz de recibirle -- no xq no le ve, ni le conoce; vosotros le conoceis, por entre vosotros mora y en vosotros estara"
+- hech 5:3-4 - "decia entonces pedro: ananias a traves de que satanas se habia llenado el corazon de ti decepcionar a ti y el espiritu santo, apartando [a ti] de la renta del territorio [(como si fuera un recudador de impuestos)]? no quedando a te se quedaba y trepasado en tu propia autoridad no lo era; por que pones en tu corazon esta practica? a hombres no les mentias, sino a Dios."
+- 1 cor 12:11 - "de todos estos [dones], obra el uno y el mismo espiritu por eleccion personal a cada uno como desea"
+- efes 4:30 - "no contristéis al espiritu santo de Dios, en q os lacró en el dia {del pago por vuestra libertad | de la redencion}"
+- rom 8:27 - "el q examinando/investigando a los corazones conoce a la mente del espiritu [santo], xq con dios conmueve sobre los santos/santificados"
 - el espiritu santo es un consolador
 	- juan 14:26 - "el consolador, el espiritu santo, a lo cual mandara el padre en el nombre de mi, el a vosotros os ensenara todo y os acordais bajo vosotros todo lo q yo decia a vosotros" [TODO]
 	- "el espiritu de verdad  [TODO]
