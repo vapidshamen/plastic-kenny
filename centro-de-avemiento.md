@@ -598,6 +598,22 @@ esta entrada va a ser un poco controversial, lo se (y la voy a dejar a medias pa
 	realmente entonces, cada concepto/espiritu de cada ser tiene atraccion a varias experiencias (el espiritu del universo a todas las experiencias) y experiementando esas experiencias, el espiritu del ser reacciona a esas experiencias ampliando/diminuendo/transformando a esas expeirencias -- y las experiencias en q esta atraido (por no los haber transformado) sigue pasado por (atraiendo a) las mismas experiencias hasta q las perciba de una manera donde ya no produce una reaccion mas de 50% resonante a la misma experiencia.
 		[I have no idea how to explain this -- so I'll try in english first: imagine the universe like the borg in the sense that as it learns to transform every experience, it's possible to put that spirit concept into a body (this is actually the idea behind the "earth girls as an AI-like entity"), the concept/spirit that animates the body doesn't have any resistance to the situation the body is experiencing -- however, because the body has been trained to pay more attention to the things that it's been taught are important (like family or behaving the way others expect you to), the body igores the feeling/voice of its spirit. so, while if the body was trained to no longer hear its inner spirit/being, then the body would perceive itself as the ser that inhabits the body. a spirit can have multiple bodies -- and usually none or only one body is actually conscious (ie, perceiving itself like the spirit perceives itself) -- and the universe is the same way: the universal spirit inhabits many bodies, and because many of those bodies are disuaded from following their emotions (which is the resonance/difference between the perception of the body and the perception of the spirit) -- the universe, can "take over" being the spirit of more and more bodies (each body never being allowed to know who it really is) -- and so as the spirit of the universe passes through all possible resonant experiences, the spirit of the universe is able to transform *all experiences* into a frequency that resonantes with the entire universe]
 
+## 2026-06-11 23:55 - dominando mi propio corazon
+
+esta noche jenny nos dio un mensaje q se llama, "dominando mi propio corazon" -- y me gusto, y por eso escribo sobre el. empezo leyendo 1 samuel 24:1-22. david se encuentro en una cueva con saul -- y sobre esto, sus hombres dijeron q jehova le dio aquel dia para entregar su enemigo a su mano (mas o menos para probar lo q le gustaria hacer con el). david corto la orilla dsl manto de saul y se turbo el corazon de david -- mas o menos xq jehova ungio a saul y no seria correcto extender su mano hacia el... era un momento perfecto de venganza pero no lo tomo.
+- la victoria no es dominar a otro, sino a nuestro propio corazon
+- vencer a algo externo cambia la situacion, pero cambiar a mi cambia mi trayectoria
+- domino propio es un fruto, un resultado de obedecer a dios.
+	- (yo no estoy 100% seguro de eso, xq domino propio tb puede venir de querer de uno mismo)
+	- (varias veces me habia encontrado en una situacion similar a la de david de poder tener venganza y no tome la oportunidad -- y con el pasaje de tiempo, algo pasa (no intencional) q corrige la situacion -- y es por eso creo en "el karma" o atraccion)
+- la oportunidad q tuvo david vino como prueba de corazon
+- la reaccion q tienes en el momento muestra el corazon
+- la incomodidad dentro q sentimos es el espiritu santo dandonos una senal/indicacion
+- es necesario aprender a escuchar/obedecer a dios cuando es dificil
+	- (obedecer o querer por uno mismo reccionar bien?)
+	- (yo no siento la necesidad de "obedecer" -- mas o menos xq ya yo quiero (por mi y mi bienestar) aprender a percibir y recionar mejor a situaciones)
+	- si uno quiere hacer algo por su propia cuenta (como dominar a su propio corazon y reaccionar bien), yo es necesario para esa persona obedecer al mandamiento xq ya lo esta haciendo por si mismo
+	- enconces q pasa con el q manda ese mandamiento? no es necesario tenerle como maestro? (xq, si domina a su propia corazon, el es su propio maestro)
 
 
 ## vision espiritual y fisica
