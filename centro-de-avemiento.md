@@ -622,6 +622,9 @@ esta noche jenny nos dio un mensaje q se llama, "dominando mi propio corazon" --
 	- si uno quiere hacer algo por su propia cuenta (como dominar a su propio corazon y reaccionar bien), yo es necesario para esa persona obedecer al mandamiento xq ya lo esta haciendo por si mismo
 	- enconces q pasa con el q manda ese mandamiento? no es necesario tenerle como maestro? (xq, si domina a su propia corazon, el es su propio maestro)
 
+## 2026-06-15 21:54 - ciclos, reflejos, y el matrimonio de cristo
+
+hoy en estudio biblico empezababamos en efesios 5 -- y espera me gustaria explicar mis situacion ahora para contexto... 
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
