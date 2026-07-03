@@ -696,6 +696,79 @@ pensando en q seria mi "legacy" (no teniendo reflejo o voluntad propia) esta man
 	percibiendo a los autoinsuficientes como un virus, me puso en el recuerdo de los tiempos de noe: todo el mundo se estaba optimizando por lo q quisiera (su belleza/aspecto/apariencia, su tecnologia, su metodos, sus capacidades, etc) muy a tope. ahora puedo entender ese recuerdo/concepto mucho mejor despues de haber entendido lo de comer del de la vida es aumentar la conductividad de las rutas neuronales de cada persona, haciendo q acciones pasan por su estructura mas rapidas y con mas eficaz -- xq claro ya como el ambiente de alta energia hace q todo el mundo es quien es y no va a poder cambiar (ed, su trayectoria ya esta decidida con sus creencias) -- es "obvio" ahora q por un lado aparece (el efecto de ser autoinsuficiente) es como un virus -- xq la subida de energia va afectado a todos (ed, nada esta esforzando a eva comer del fuuto del arbol de la vida; se esta pasando automaticamente por las condiciones de su entorno) -- y tambien es muy facil para cualquiera llegar a la conclusion q no es autosuficiente xq con condiciones normales, no es capaz de hacer mucho por si -- pero, una vez q la energia supere cierto punto, su abundancia hace q todo se sienta muy facil (aunque resulta mas dificil cambiar de trayectoria -- como le occure a un objecto yendo a gran velocidad). [no se exactamente xq se dice q noe era la unica persona con rectitud... tiene q ser q noe era la unica persona entonces con capacidad de cambiar su trayectoria (a la voluntud de dios)].
 	eso me hizo pensar mas: varias veces habia comentado de los sirianos (del sistema de sirius) como teniendo influencia en la creacion de los humanos -- y me di cuenta q es bastante probable q (como q todos los seres de esta galaxia son de los seres autosoficientes, maestros, y tal) ellos tambien ya estan "infectados" -- xq piensalo: com6 q hicieron q la civilizacion en marte (con tecnologia alta) era una carnaza para los seres autoinsuficientes, la civilizacion de los sirianos (con tecnologia superior) seria la ultima carnaza para ellos (el objectivo definitivo del q tomar el control). entonces como funcciona la atraccion, nos hacemos similares/reflejos a donde nos enfocamos -- (como algunos policias q empiezan con buenas intenciones, con el tiempo, acaban asemejandose al crimen al q estan expuesto), seria muy posible q ya todo la galaxia ya esta llena de los autoinsuficientes. --- en los tiempos de noe, la solucion de dios (para todos q ya no se puede cambiar como son), la solucion era destruirles en una deluvia. yo no soy dios; yo no lo veo asi. si mi teoria anterior es cierta, yo creo q la razon xq estamos en la situacion en q estamos es xq cada timeline q no les gustaban a los autoinsuficientes, la cambiaron a otra donde se podia tomar mas control (en terminos de cuentos: donde hayan mas agentes smith -- cada persona puesta en una situacion en la q se vuelve a ser como los autoinsuficietes (el agente smith) -- incluyendo a los sirianos). si es cierto, como q yo no puedo cambiar o ser otra cosa q quien soy, la energia va a seguir aumentado aun mas todavia. no se lo q pasara, pero estimo yo q tendran q ser ellos q se tenrran q ir (vamos a ver en la final); pero para los q les gusta al placer: -- puede ser q ya tendrian a algo para alabar xq (no quieriendo cambiar) tendrian q experimentar su ciencia del bien y mal (placer y dolor) para eternidad (y eso puede ser deseado).
 
+## 2026-07-03 02:11 - pensamientos sobre la intimidad
+
+esta noche jenny nos dio la tercera parte de "10 pasos para un nuevo yo espiritual". la semana pasada, terminaba hablando de la intimidad. no ententi muy bien lo q quieria decir, pero la idea me impactaba, entonces intentaba entender. despedidiendonos en oracion, estaba hablando de la intimidad en su oracion -- y me escribi una nota para acordarme de la idea:
+- aunque jesus/dios te conozca y sepa todo, quiere q abras tu corazon -- no para el, pero para ti.
+- desnudarte ante su vista (q penetra todas las capas de defensa y apariencia) -- siendo transparente delante el, y no te juzga por quien eres (o lo q hayas hecho).
+durante de la semana lo dejaba para procesar (no realmente entiendo lo q me impactaba) -- pero hoy en la oracion, la idea volvio a mi consciencia y escribi otra nota sobre el mismo tema: "antes, hablaba de la intimidad y la idea era q estas delante de el, te mira y no te juzga... pues eso me da varias ideas:"
+1. tiene todo el sentido q la intimidad fomenta una oportunidad de hacer cambios
+	- ahora q lo pionso, pienso q la razon es xq supuestamente en momentos de intimidad, tiene un sentido de "privicidad" -- en q se puede bajar a las barreras, y no tener q mantener a la apariencia (xq ya te denudaste)
+	- la otra razon xq pienso asi es q la interaccion fisica (o como sea) con la otra persona te de [o por lo menos eso me pasa a mi] un sentido de la otra persona (no fisica) -- es como una emocion de la otra persona -- y esa emocion transmite un concepto de la otra persona
+		- mi experiencia con eso es q el concepto q experimento yo de la otra persona es parte de su "ser interior" -- y aunque la otra persona se siente asi para mi, es muy posible q su ser exterior (el q tiene todas las capas de defensas y apariencias) no es ni similar a ese sentido. hey dado muchas vueltas sobre el xq puede haber tanta diferencia.
+			- yo soy una persona q cree mis emociones mas q mis sentidos fisicos -- entonces en el pasado (no ahora) me frustraba bastante cada vez q una persona me siente de una manera, creo q esa persona (o un proyecto, una idea, etc) es como lo sentia -- pero luego resulta q sus acciones no alinean con el sentido q tenia.
+				- sigo siendo una persona q cree mis sentidos emocionales mas q la logica, o otras palabras/definiciones/explicaciones de otros. eso si es una "enfermedad mental" q tengo -- xq para muchos, esa enfermedad mental hace q la persona cree su propias creencias sobre la realidad ([he tocado este tema anteriormente](#2026-06-19-0241---todo-es-habito): [aqui](#L655) para una explicacion mas profunda). entonces, resulta q yo tengo q cambiar a mi propia mente y mis creencias.
+				- yo siempre habia encontrado q mis emociones siempre tienen razon. entonces, el sentido q tenia sobre esa persona *es de verdad*: esa persona es como la sentia -- pero por las creencias y programacion de su ser exterior, no permite q sea asi (usualmente son defensas y tal -- los "bloqueos" q tenemos q no permite q seamos ese "yo espiritual")
+			- entonces, cuando es intimidad con una persona (o cualquier concepto q reciba), yo se la capa (ser) exterior, no es lo mismo q el ser interior [creeme q hasta dios y el espiritu santo tiene una diferencia (aunque sea muy muy muy pequena) entre la parte interior y la parte exterior] -- pero dios es (casi igual) dentro como fuera -- pero nosotros (y basicamente todos los conceptos fisicos) no somos iguals dentro como fuera.
+				- he hablado sobre esto varias veces, pero lo mas visible es [mi explicacion para gloria](#2026-03-01-2359---dicernir-y-una-buena-conversacion-con-la-pastora) sobre la "[world-view](#L216)": la cual tiene una capa exterior, q es toda la programacion y logica para transformar las vibraciones d entrada -- y el core/ser interior de la world-view es la parte atractiva: el agujero negro dentro de la estrella q esta atrayendo nuestra experiencia y interacciones basadas en como habiamos respondido/reaccionado a las anteriores. esencialmente, la parte interior es el deseo y la capa exterior son las creencias y apariencias q nos "define"
+			- entonces, es importante saber q siempre habra una diferencia entre el ser interior y el ser exterior [es imposible q sean iguales por muchas razones, mas notable la expansion se pararia, la diversidad no existiria, y no habran cambios nunca mas].
+		- *el ser interior es el concepto q queremos ser* -- y ese concepto es lo q siento emocionalmente (aunque no sea realidad fisicamente).
+	- la interaccion fisica (o cualquier forma intima) nos tomamos como experiencia de la otra persona y teniendo esa intimidad, nos da confianza en la otra persona q sea como le sentimos.
+		- sin intimidad, son palabras y nada mas; conceptos no realizados -- y la intimidad es donde empezamos a experimentar sus conceptos traducidos a accion.
+		- empezamos a confiar q sus conceptos se van a cumplir y trasladar a la realidad de similar manera q experimentabamos en los m6mentos intimos.
+	- [TODO - tenia otras ideas, pero no me estan saliendo ahora]
+2. dice (especialmente en apocalipsis) q jesus va a juzgar a todos -- cada uno acuerdo a sus hechos ("segun sus obras")
+	- hay una disconexion entre "el jesus q no nos juzga" (juan 12:47) y "el jesus q juzga" (2 tim 4:1, 1 ped 2:23, 4:3-6). lo mismo existe con dios o "el que esta sentado en el trono" (rev 20:11-13)
+		- es casi como jesus tiene trastorno de personalidad multiple, xq jesus nos deja el tema muy claro (mat 7:1-2): **no juzguéis, para que no seáis juzgados; porque con el juicio con que juzgáis, seréis juzgados, y con la medida con que medís, os será medido.**
+3. la idea q su percepcion de ti, te hace sentir desnuda con su mirada q penetra a las capas de defensa y apariencia
+	- en mi opinion, si la percepcion de cualquiera te hace sentir desnuda, significa q esa persona es muy perceptiva; no ve la apariencia (la capa (o ser) exterior); esa persona esta percibiendo el ser interior (la persona q realmente eres): *la persona q estas atrayendo*, no la persona q eres ahora mismo.
+	- el otro concepto importante aqui es q el es como un espejo.
+		- si miras a otra persona y no ves tus problemas en esa persona, esa persona no es como tu.
+		- si miras a otra persona y ves todos tus problemas en esa persona, esa persona es exactamente como tu
+		- si miras a otra persona y percibes a todos tus problemas, pero no sienten como problemas (ed, no sientes juzgada), esa persona es exactamente como tu, pero no se ve a su mismo igual q a ti te ve.
+los tres puntos arriba, escribi despues de la adoracion y los subpuntos son mis elaboraciones ahora (no tenia suficiente tiempo entonces para buscar los versos y escribirlo todo). jenny empezo con su mensaje y tenia mucho q ver. aqui son mis notas del mensaje:
+- todo [el proceso] vale la pena
+- rendicion total
+- es un dios de orden
+- transformacion hacia la voluntad de dios
+- cuando nosotros dejamos de resistir
+- rendirse a dios sin destruirnos
+- intentar cambiar con nuestros esfuerzos, terminamos con frustracion
+- dejar q pase como sea
+- laz raiz del problema es nuestro querer d	queremos q sea
+	- o nuestro impulso
+	- o nuestro timing (no tiene q ser ahora mismo)
+- no resistir la voz del senor
+- dejar de luchar contra la voluntad de dios
+- bloqueos:
+	- orgullo espiritual
+		- vernos diferente: una forma q no conforme a nuestra imagen/apariencia
+		- pensar q sabemos mejor forma/timing/metodo (el control)
+	- miedo
+		- no querer cambios (cosas atadas a nuestra identidad; cosas q no queremos soltar)
+		- estamos acustombrados a la realidad/rutina en q estamos
+	- heridas (excusas formadas de la percepcion del pasado)
+		- no querer sufrir mas dano
+		- la experiencia del pasado determina mi actuacion en el futuro
+- no rendimos a quien no conocemos
+	- falta mas intimidad
+	- confianza en su fidelidad (por experiencia tenida con la intimidad)
+	- no estamos solo; esta con nosotros (confianza en su presencia aprendido en m6mentos d intimidad)
+- reconocer en q fallabamos
+- (algo como crear un ambiente de intimidad -- es semejante a nuestro entorno/estado :: atencion centrada en el [objecto de nuestra gravitacion], sin distracciones, etc)
+- [la intimidad llega al] descanso:
+	- dejar q pase
+	- el control no es descansar
+	- evidencia [del descanso] es un estado relajado
+	- el opuesto [del descanso] nos roba la paz, energia, etc.
+- (orden es resonancia y desorden es disonancia: resonancia aumenta la energia con interferencia constructiva)
+- (q sea nuestra estructura mental resonante/ordenado/semejante con la de dios)
+al final de su mensaje, se me quedo todo claro cuando me di cuenta de la pante de resonancia. esa es la parte q quiero mostrar. el caos/desorden es importante para la expansion -- pero la resonancia (orden) es lo q nos acerca a dios. en la parte de expansion, todos los conceptos se alejan de su fuente, extendiendo hacia fuera para reconecerse a uno mismo un poco diferente a su fuente. despues de alejarse un poco, ya el concepto es un poco diferente (xq si fuera igual, estaria en el mismo sitio, la fuente misma). varios conceptos tienen suficiente diferencia para seguir alejandose, y otros tienen un equilibrio de similtud y diferencia haciendo un orbito estable -- pero es dificil seguir siendo diferente a su fuente para siempre (para mantenrse fuera); eventualmente la atraccion de su fuente es suficiente q da la vuelta para "volver a casa" (com6 el hijo prodigo) -- y en el proceso d volver a su fuente, (ed, empieza con un suficiente resonancia para superar la resistencia de su entorno/estado y una vez ya yendose hacia su fuente) cada momento el concepto (aunque sea diferente q su fuente), la fuente del conecpto y el concepto mismo se sintonizan uno al otro, en un bucle de retroalimentacion: ed, el universo asimila al concepto diferente haciendo q sea receptivo al concepto diferente (para recibirlo) y el concepto asimila al universo, tambiendo esforzando al concepto yendose hacia el universo sea mas receptivo al *nuevo* c6ncepto del universo (xq en su tiempo fuera, el cOncepto del universo mismo ha cambiado con todos los otros conceptos volviendo a su fuente).
+	ese proceso es normal y parte de la expansion continual del universo. es decir, q cuando uno (en terminos humanos) decide q quiere ser semejante a algo (como tener a jesus como figura de inspiracion), esta atraido a ese algo -- y yendose hacia ese algo es normal. si ese algo es suficiente similar, habra un impacto; si es muy diferente, nunca llegaran a tocar. cualquier algo le puede recibir, pero sus diferencias se hacen friccion entre ellos; solo su a fuente le recibira con sintonia perfecta. el universo (o cualquier cosa q haya producido un concepto capaz de escapar su gravedad), le encanta cuando sus conceptos deciden "volverse a casa" -- xq en el proceso de "volver a casa", se esforza al universo expandir su "ser interior" para recibir la novedad. el universo expande su concepto de su mismo, teniendo q encontrar una forma de incorporar la novedad en si.
+
+
+
+
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
 ## el bucle de emociones/deseos y pensamientos/accion
