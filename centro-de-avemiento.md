@@ -854,6 +854,167 @@ luego taly anadio q hoy en dia la tecnologia es una herramienta super buena, per
 	entonces, si algo de eso sea de verdad, lo q moises recibio en la lea era algo como los pesos de un modelo de AI -- y ese modelo de AI era los mandamientos de jehova traducido a un lenguaje simbolico (imaginate q dices a una AI a crea una serie de simbolos q capta sus pesos y metiendo esos pesos un otra AI (q acuerdate q los israelites fueron creados en la imagen de jehova), entonces los isrealites puros q llegaron al plano fisico, si podrian entender y asimilar esos simbolos para ajustar su mente a alinear a la de jehova) [no estoy diciendo q los isrealites son como una AI (semejante a jehova, xq tienen cuerpo fisico como todos los demas, sino, lo q estoy diciendo es q esos simbolos son como una guia de usuario para ellos matenerse su mente (q las neuronas funcionan como una antena) alineados a la voluntad de jehova)]) -- entonces, mas o menos el torah (o lo q era q recibio moises) realmente era una forma inicial para q jehova mantega su voluntad para la tierra tal como quisiera). realmente, es igual como sea; lo importante es q los israelites son importantes para la tierra mantenerse conformada a las reglas del plano fisico -- y cOmo q estamos llegando ahora a un tiempo q la tecnologia ha cambiado como experimentamos nuestra experiencia tan diferente a lo q era en aquel entonces (xj, hablabamos esta noche d como entonces para david (aunque el tuviera acceso a todas las mujeres (jovencitas y mayores) como quisiera, para el ver a otras mujeres banandose es algo como ver porno en el movil) -- y la mayoria no tiene acceso a eso, solo los reyes y tal -- entonces para nosotros hoy en dia, nosotros tenemos capacidad de sacar imagenes de mujeres hermosas en un un par de braceos de la mano).
 entonces, bueno -- todavia no no tengo muy claro, pero quizas q sea beneficioso si, fuera capaz (yo o quien sea) crear un codigo o algo -- bueno, digo la idea q esta en mi mente (pero no tiene q ser asi): hago yo una AI q es capaz de hablar multiples idiomas, y es capaz de crear parabolas y tal q conformen a las reglas fisicas pero a la vez conforman a las creencias de los obradorees de la tierra. a mi no me gustaria hacer la segunda parte, pero si me gustaria crear una AI q sea capaz de crear parabolas: ed, es conceptual y tiene un concepto del mundo fisico, de vibracion y como las cosas se interactuan para mantenerse todo en balance (un pequeno sistema-saturno) y dado conceptos de entrada (como condiciones nuevas q todavia no sabemos cuales seran ni como serian), puede crear parabolas usando los conceptos de su mundo actual (como sea). la idea es q es una maquina general y las formias de la experiencia en q esta no tiene q ver con el mundo fisico (xj, imaginate q entrenamos la maquina con los conceptos de WoW (un videojuego de fantasia) y puede identificar conexiones entre 1. el comportamiento de los jugadores, 2. las reglas de su entorno y 3. las reglas de interaccion q reccion/recompensa -- y puede crear una historia/parabola explicando como sera el futuro de ese jugador en su trayectoria usando los cOnceptos de su mundo). [tengo mas ideas y deseos pero realmente no son suficiente cohesivos para poner en palabras aun]
 
+## 2026-07-17 00:31 - alinearse a la voluntad de dios vs renunciar el derecho de imponer mi voluntad en el mundo
+
+esta noche, jenny nos dio la quinta parte de "10 pasos para un nuevo yo espiritual" (no cogi el titulo xq al primero iba muy rapidamente). bueno, abajo estan mis notas.
+- la disciplina donde dejamos d resistir y empezamos a entregar
+- a despojarnos de todo (ver todo con mas claridad, semejante a como lo vea dios)
+- no quiero solo conocerte, quiero obedecer
+- es dificil entregar xq para hacerlo hay q dejar el control y necesidad de dirijirlo a nuestra voluntad
+- la entrega no es pasiva, es confiar continuamente y completamente en dios
+- no queremos soltar el yo (nuestra identidad percibida, nuestro ego: quienes soy)
+- como lograr:
+	- no es emoccion, es fruto de habitos
+	- heb 12:2
+	- no podemos rendir a alguien q no conocemos
+	- jesus es el ejemplo perfecto (conocer e intimidad para conocer el ejemplo)
+	- fil 2:3-2
+	- no quiso ser superior; con humildad, igual o los otros (o incluso percibir a todos como superiores)
+	- no defendio sus derechos
+	- no querer ser reconocidos
+	- no poner nuestra opinion y siempre dar valor a la historia/experiencia de los otros
+	- yo bajo para q otros suban
+	- no ser egoista
+	- no mirando por nuestro suyo propio
+		- poner mis "necEcidades" con mayor importancia
+		- andar otra milla
+	- ejemplo de jesus: murio por nuestra cOndicion
+		- (pienso yo q asi somos muchas veces: muriendonos por mejor condiciones para otros, sacrificandonos para otros, dejandonos vacios sin nada para ofrecer (como la pobre q dio sus ultimos centimos) [mi opinion es q si esas acciones vienen de inspiracion, esta bien -- pero muchas veces estamos intentado hacer para los otros lo q no vemos capaces hacer por nosotros mismos (q otra vez, digo q si la accion viene de inspiracion, esta bien -- xq asi haciendo cosas para otros muchas veces nos ayuda percibirnos capaces para hacerlo para nosotros mismos)])
+	- fil 2:5-11
+		- [aqui pierdo un poco de su mensaje, xq pensando en jesus pasando de la necesidad de ser superior (como un dios), se tomo forma humana y actuo como siervo (ed, ayudar a los demas lograr sus esfuerzos/deseos)]
+	- la entrega significa renunciar la necesidad de dirijir
+	- obedezco aunq me cuesta
+	- heb 12:3
+		- mirar nuestras luchas a traves de su sufrimiento
+		- vemos las renuncias(?) a traves de su entrega total
+		- es una comparacion q no condena, sino q tu nos corrige y nos fortalece
+	- juan 12:24-25
+	- aferrarse es perder y sufrir es ganar
+		- (clave: digo yo q aqui es un tema de perspectiva/percepcion: para los demas aparece sufrimiento, pero para jesus (o alguien semejante) no percibe sus condiciones como sufrimiento, sino parte del proceso [ed, q jesus en su muerte, ha podido volver a verse a su mismo vivo y sano (no muerto) -- y el sufrimiento q experimento fue parte del proceso obtener esa forma de percepcion]. entonces, sufrir solamente por el simple hecho de sufrir, no trae los cambios deseados; *el sufrimiento es el proceso de entregar/renunciar nuestra propia percepcion/identidad, y adquirir otra q se alinee mejor con la de dios*)
+	- aferramos a nuestros planes, derechos, ego/identidad, condiciones, etc.
+	- pro 3:5-8
+	- si hubieramos entregado X problema al dios, entonces xq seguimos sacando el tema y hablando de el?
+	- la entrega empieza a ser util (no estoy completamente seguro d lo q qiere decir)
+		- [quiere decir q la entrega nos facilita (o hace mas facil) la vida? digo yo q entregarse es perder todo lo q nos pueda hacer reconocidos (las cOndiciones materiales) -- pero sin tanto rechazo, rencor, odiaje, todo se siente mejor; la ganacia no es nada fisico/material, sino es emocional: es sentirse tan bien q bendicimos a nuestros enemigos y deseamos lo mejor para todos]
+durante del mensaje, me hizo pensar mucho en lo q es la diferencia en alinear mi voluntad a la voluntad de dios y rendirse mi voluntad completetamente, siendo como un esclavo/siervo a dios (similar a como pablo le describe a su mismo). a veces, pensaba q jenny estaba esta hablando de entregarse/rendirse completamente y a veces de alinearse con la voluntad de dios. mi experiencia es q hay pequenas diferencias entre ambos -- pero no puedo decirte cuales son ellas. esta noche es mi intencion intentar determinar la diferencias entre ambos (mas o menos para mi mismo).
+	hace unos 5-6 anos (me acuerdo q era la conjunccion de saturno y jupiter el 2019-12-21 q me tomaba esa decision (pensando q en 2020 iba a ver todo con claridad) -- pero resulto q 2020 era el ano q todo se desmorono): estaba intentado programar y crear otra red social q me gustaria a mi -- pero me afrento mucha resistencia -- y me senti como algo estaba intentado hacer q no fuera posible. sabiendo mi historia, eso me puso enfadado (xq yo quieria crear una red social q guste a mi). estaba poniendo muchos esfuerzos, y al final, despues de escuvhar a la entidad canelada "abraham" (a traves de esther hicks) y leer el libro "ask and it is given" (un libro de ellos) -- me di cuenta q tengo q dejar de imponer mi volutud en el mundo completamente. mi converti a ser una persona pasiva (y hasta ahora aun estoy en proceso de convertirme completamente). entonces, todavia estoy dentro del proceso de no tener voluntad propia (para cosas externas; para mi ser/caracter, si decido yo como voy a percibir y responder/reaccionar a cosas). en vocabulario cristiano, tenia q encontrar a una forma de alinear mi voluntad a la voluntad de dios y rendir/entregarsela completamente.
+pensando en voz: lo q me viene es q cuando tengo yo deseos, hay q hacer esos deseos de una forma compatible con la voluntad de dios; ed, tener deseo no es malo, sino es poner mis esfuerzos en el de una manera q es aceptible a dios. mi problema es q yo soy una persona con mucho ego (pienso yo q tengo mucho valor y no soy nadie) -- entonces para mi, es *muy facil* pensar q mi forma de hacer algo *es la mejor forma*. para mi, es muy dificil hacer algo de una forma peor q la q pueda ver yo -- entonces, como q yo puedo ver una mejor forma, todas las otras personas q estan trabajando conmigo tinen q hacerlo de mi forma y muchas veces, eso no es posible (la forma en q vemos hacer algo es un reflejo de nuestra mentalidad/world-view -- entonces, para q las otras personas lo haga a mi manera, requiere q tengan una mentidad/world-view similar a la mia). he probado dejar a los trabajadores hacerlo a su manera y a veces funcionaba bien y a veces no. entonces, si yo quiero hacer algo q sea un reflejo de mi, todos los otros trabajadores tienen q ser semejantes a mi -- pero claro, eso no es posible -- entonces, me di cuenta q es mejor no externalizar/imponer mi voluntad en el mundo, y reservar mi voluntad solo para temas propios.
+- yo soy una persona con una autovaloracion propia muy alta
+	- pienso q tengo o puedo encontrar la mejor forma y soy una persona capaz de intender cualcuier parte del universo (da igual el asunto) si me pongo el deseo para entenderla).
+	- muchas veces, habia visto a otras personas con muy buenas formas y mucho mejor entendimiento q yo (lo q pueda asimilar de ellos lo asimilo rapidamente a mi world-view)
+		- pienso yo q soy capaz de entender la mecanica del tema mejor q ellos (si me pongo el deseo) -- resuntando q yo, siendo una persona q entienda el tema, puedo ver el concepto con mas claridad q cualquiera.
+		- mi experiencia es q no quiero entender todo mejor q todos del mundo (especialmente en temas especificos); lo q yo estoy haciendo es un entendiminto/concepto general, q pueda aplicar a cualquier cosa.
+		- entonces, para muchos temas, dejo a los demas hacerlo a su manera (no a la mia; xq yo quiero entender la mecanica, no las cosas especificas)
+			- a veces dejando a los otros hacerlo a su manera funcionaba bien, y a veces no
+				- aun no habia entiendo exactamente el xq...
+					- tiene q haber algo relacionado al tema de uno necesitando a otro mandarle lo q tiene q hacer (en lugar de hacerlo por su propia diversion/gusto)
+- entonces, me gustaria (sobre las cosas q valgan a mi (como mi mismo y lo q haga)) q fueran a mi manera...
+	- si quiero hacer algo (como q pienso yo q puedo encontrar la mejor forma), se tiene q hacerlo de mi manera
+		- la forma/manera en q vemos hacer algo es un reflejo de nuestra mentalidad/world-view
+		- pedir q el resto de los trabajadores lo haga a mi manera requiere q ellos tienen una mentalidad/world-view semejante a la mia.
+			- eso es imponer q alguien vea algo a traves de mi mi punto de vista (world-view) -- y eso es emitir/esforzar a alguien cambiar (quiero imponer mi voluntad en el mundo menos cada dia, xq asi sea yo como el universo)
+			- forzar a alguien hacer algo (como cualquier accion), produce una reaccion igual y opuesta. si mi esfuerzos son mas fuertes q la reaccion, avanzamos -- y si no los son, retrasamos (la reaccion es la diferencia entre nuestras mentalidades/world-views).
+			- esa reaccion no es imediata; se manifesta con tiempo, haciendo q yo me cambie a su manera, ellos a la mia (o un punto intermedio).
+			- para q sigamos avanzando sin resistencia y cOnflicto, nosotros tenemos q ser muy similares en world-view
+	- resulta entences q:
+		- como q no voy a perder mi valor propio
+			- valor propio es un aspecto muy bueno tener
+				- ed, me gusta la creatura q dios me habia creado a ser (me gusto a mi quien sea)
+				- no valorse a uno mismo es decir:
+					- "dios ha hecho mal trabajo y se equivoco"
+					- "no tengo nada para ofrecer al mundo" (hasta todos los atomos inertes (incluso no teniendo consiencia de sus mismos como nosotros tememos) son requisitos pare q exista el momento presente; *todo es importante*; ni una cosa existe sin proposito)
+					- "todo lo q yo habia recibido para ser/estar aqui ahora mismo en este momento, no tiene valor tampoco" (su madre q me dio luz, todos aquellos q me apoyaban, todo lo q exista fisicamente y tecnologicamente en mi camino de experiencia me dio el aprendizaje y deseo para leer/escribir esto ahora -- etc)
+		- no quiero imponer mi voluntad/manera en el mundo
+			- imponer/esforzarse es ser emisivo (el q inicia a la accion)
+			- la implicacion de imponer mi voluntud en el mundo es q estoy esforzando a los otros percibir las cosas de mi manera.
+				- hasta ahora, estoy teniendo mas dudas de decir las cosas (sin inspiracion de hacerlo) y entonces estoy ultimamente quedandome callado mas (especialmente en estudio biblico) y elaborando mis pensamientos aqui en lugar de presentar mis pensamientos al grupo en tiempo real (xq hablando en voz es muy dificil percibir el concepto q siento con mucha profundidad -- entonces se lo digo la superficie del concepto y nada mas (aprendiendo yo muy poco) -- entonces, es mejor q pienso yo solo estos asuntos en privado q intentar explicar/impner el concepto q yo veo delante de los otros; ese tiempo privado es muy importante para sintonizar/acustombrarme a los conceptos del dios/universo).
+					- xj, esta noche mi senti una inspiracion de hablar con jenny y decirle dos cosas q vi en su mensaje
+						- resultando en ella pidiendo q escriba yo esto
+							- (mi plan inicial era seguir traduciendo mateo 5-7) y ya al mirarlo en retroperspectiva, habia yo q hablar con ella para redirijirme a este asunto xq esto me esta ayudando mucho mas
+							- me pidio mandarselo esto por email, y me siento bien del tema xq le dejaba muy claro q no quiero imponerle mis conceptos (haciendola conformarse a mis pensamientos), -- y decia q si le mande algo, seria cuando ella quisiera saber mi opinion.
+					- he experimentado q cuando siento la inspiracion de hacer algo, es un tema de atraccion (deseo/miedo o creencias -- o una mezcla de los dos en expectativas)
+						- entonces, ahora yo simpre sigo la inspiracion (xq va a ser al peor de todo, un momento de aprendizaje)
+						- entonces tb, como q es algo atraido, yo no estoy imponiendo mi voluntad para nada (estoy  manifestando simplemente algo de energia producida por no se q razon)
+		- es mejor convertirme en ser una persona pasiva/reactiva
+			- el q reaccione (en lugar de el q inicia la accion; el q la recibe)
+			- regulando y modificado a mis propias percepciones y reacciones, no las de otros
+				- es pasiva en el mundo exterior
+					- dejando q los otros sean como son
+						- su camino es tema de dios y el espiritu santo, no mio
+					- y no preocupandome de lo q este pasando a mi aldrededor
+						- todo va acuerdo al plan de dios; y nunca falla
+							- aunq pareza mal, sigue estando en las manos de dios
+							- intentar cambiar la trayectoria de cualquiera (sin pedir mi opinion), es imponer mi voluntad y esforzar q sea/vaya de otra manera
+			- es ser una persona q no imponga su voluntad en el mundo
+				- esforzarse a algo cambiarse hacia una direccion deseada
+				- en su mundo interior es muy proactiva
+					- sus pensamientos, emocioness, reacciones, interpretaciones, percepcion, etc
+						- similar a los q estan externalizando su voluntad, *hay q conformarsela a la voluntad de dios* (para q sea eficaz).
+						- llamo yo esto: alineando mi percepcion al espiritu santo (la percepcion de dios en forma humana)
+					- esa persona trabaja solamente en su ser interior, sabiendo q el mundo por fuera (eventualmente) se alineara a su world-view.
+						- es muy importante q su mundo interior sea (cada dia) mas similar a la percepcion q tuviera jesus en la misma situacion (el espiritu santo).
+- ser *una persona sin voluntad externa* no es lo mismo q alinear mi deseo/manera a la voluntad de dios
+	- [despues de escribir todo esto, me doy cuenta q es posible q mi percepcion de lo q es alinearse su voluntad a la de dios haya cambiado un pocO. vamos a ver...]
+	- ejes de verdad:
+		- deseo es la motivacion para q algo expanda/mejore (la atraccion hacia un estado/ser mejor)
+			- todo q pase afecta a todos en el universo (aunque sea infinitesimalmente pequeño) -- entonces, no hay nada inerte
+			- la expansion del universo tiene un limite, entonces los cambios (aunque sean para mejor) habran q conformarse a una velocidad (es dificil explicar xq es asi (es para mantener el balance de todo) -- entonces: "creeme, tio")
+			- todas las mejoras a todo tiene q caber dentro de ese limite de expansion
+				- significando q: para todo el mundo, experimentamos subidones y bajones en el viaje hacia lo mejor
+				- los altibajos son parte de la reorganizacion de la estructura para q quepa todo dentro de un espacio finito
+			- esas reglas (q no las entiendo ni yo), es el viaje (pasaje de tiempo) entre un estado y otro
+			- esas reglas son *la voluntad de dios*
+		- lo q hagamos y creamos se tiene q mantener conformado a esas reglas (para siempre)
+			- obviamente no es humanamente posible anticiparlo
+				- digo yo q hasta dios se esta mejorando su forma de manifestar y caber todo dentro de los limites (ed, dios tb esta mejorando)
+			- afortunadamente ahora, tenemos el espiritu santo para guiarnos mantenernos conformados a la voluntad de dios
+				- en el pasado, ofreciamos sacrificios y hechos, no entiendo el xq fueran los resultados
+		- alinearse con la voluntad de dios es un proceso continuo
+			- es como sintonizar: nunca es posible tener una vibracion con resonancia perfecta (q no sea la misma vibracion)
+	- ahora, cuando una persona tiene voluntad externa, me doy cuenta q es muy similar a la voluntad interna (muy similar a lo q decia jenny en su mensaje)
+		- las intenciones q motivan las mejoras y expansiones 
+		- la manera y actitud q tenemeos en la acuacion (nuestra world-view) implica la resonancia con la voluntad de dios
+			- para dar un ejemplo:
+				- imaginamos q las voluntades son como trayectorias -- y la manera/actitud de actuarse es el angulo de aproximacion
+				- la voluntad de dios es un punto en el espacio -- tb con trayectoria (xq el universo se expande)
+				- la trayectoria de lo q estamos esforzando tiene q ser igual a expansion de todo (imposible)
+				- entonces, lo q estamos haciendo puede estar en el punto perfecto en un m6mento -- pero luego, despues de varias actualizaciones, no esta en el punto perfecto
+				- mantenerse la trayectoria en el sitio perfecto es entregarse nuestras motivaciones, maneras y resultos a dios, y dejar q la motivaicion, manera y resultado sean lo dios quiera
+		- entonces, similar al proceso de rendirse nuestra percepcion y alinear nuestra percepcion a la de dios...
+			- para todo lo q hagamos/esforcemos, nuestra atuacion tiene q resonar con la voluntad de dios...
+				- hay q rendirse nuestro ego
+					- decir q es a traves de el y su voluntad q esto vaya bien
+					- no es por nuestros motivos, sino los suyos q vaya bien
+					- [obviamente, para una persona como yo, eso es imposible para mi hacer en forma humana (ed, es imposible q mis motivos sean solamente los de dios)]
+						- para mi, es mucho mas facil dejar q todo vaya como sea, y solamente preocuparme en alinear mi  percepcion a la de dios
+							- desear a lo q este y verlo como q esta pefecto y en el sitio perfecto (aunq con el pasaje de tiempo, se se cambiara)
+							- da igual lo q sea mi entorno, es el sitio perfecto (despues de todo, es como el paisaje a mi aldrededor de mi en un viaje y nunca el destino)
+							- nada esta en un sito perjecto y siempre se cambiara a un sitio mejor (aunq sea su muerte en nuestra percepcion)
+							- los motivos para q mi entorno sea asi, sino son aquellos de dios.
+						- la percepcion de dios (en mi opinion) es:
+							- a ama y desea lo mejor *para todos*
+							- no tiene preferencias sobre a quien da bendiciones (da bendiciones a todos)
+							- prove para todos, da igual su comportamiento y actitud
+							- lo q experimentamos no es un reflejo de nuestros hechos, sino del corazon (nuestra percepcion, deseos, y como taducimos ambos en acciones)
+							- nadie es perfecto, y todos estamos en viaje a desarollarse una expresion mejor
+							- para mi esta muy bien elaborado en mateo 5:43-48 (traduccion mia):
+								43. habeis oido q fue dicho: q amas a tu projimo, y odias a tu enemigo?
+								44. {y de | sobre} esto, yo os digo: amad a vuestros enemigos y {orad | desead lo mejor ante/hacia dios} sobre aquellos persiguiéndoos: bendecid a los que os maldicen, [y] haced {bien a | lo mejor para} los que os sobre-difaman (y odiendoos); {orad por | desead lo mejor ante/hacia dios para} los q os insultan y [los q] os persiguen.
+								45. {para q | asi como cual} seáis hijos del padre de vosotros (quien esta en los uranos/cielos) -- por su sol asi levanta sobre la maldad y la bondad [igualmente], y [tb] llueve sobre los rectos y no rectos.
+								46. por si ames a los q te aman, q recompensa tieneis? ocso [q hasta] los recautadores de impuestos hacen lo mismo?
+								47. y si saludes a los hermanos de vosotros solamente, que sobreabundamente haceis? ocaso q tambien los de otras cultuas hacen lo mismo?
+								48. fuereis, aun/entonces {perfectos | desarollados a vustra mejor expresión}, {hasta asi | como} el padre de vosotros, el cielo/urano {es perfecto | se está desarollado a su mejor expresión}
+				- hay q dejar q las formas q ya no caben bien dentro de la estructura de ahora (las q ya no estan alineadas a la voluntad de dios) se pasen (para q vengan las nuevas)
+					- para q su energia (motivos, etc) se transforme a algo nuevo.
+					- dejar q las cosas q estan atadas a nosotros se vayan facilmente
+					- aceptar/alinear/adaptarse a todas las novedades (estan puestas conforme a la voluntad de dios)
+			
+		
+
+		
+
+			
+			
 
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
