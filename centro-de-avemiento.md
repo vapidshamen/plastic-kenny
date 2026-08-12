@@ -856,7 +856,7 @@ entonces, bueno -- todavia no no tengo muy claro, pero quizas q sea beneficioso 
 
 ## 2026-07-17 00:31 - alinearse a la voluntad de dios vs renunciar el derecho de imponer mi voluntad en el mundo
 
-esta noche, jenny nos dio la quinta parte de "10 pasos para un nuevo yo espiritual" (no cogi el titulo xq al primero iba muy rapidamente). bueno, abajo estan mis notas.
+esta noche, jenny nos dio la quinta parte de "10 pasos para un nuevo yo espiritual" (no cogi el titulo xq al primero iba muy rapidamente). bueno, aqui estan mis notas:
 - la disciplina donde dejamos d resistir y empezamos a entregar
 - a despojarnos de todo (ver todo con mas claridad, semejante a como lo vea dios)
 - no quiero solo conocerte, quiero obedecer
@@ -866,9 +866,12 @@ esta noche, jenny nos dio la quinta parte de "10 pasos para un nuevo yo espiritu
 - como lograr:
 	- no es emoccion, es fruto de habitos
 	- heb 12:2
+		- (11:39-40 - contexto) "y todas estas [cosas] que recibieron buen testimonio/aprobación a traves de su fe no recibieron la promesa de dios para nosotros: mas fuerte/mejor es algo previsto, para q (no quitando a nosotros) sean {perfeccionados | desarrollados hacia/a su máxima/mejor expresión}"
+		- (12:1 - contexto) "él por entonces, nosotros tambien teniendo sobrerodeándonos una nube de de testigos habiendo despojado al peso total y el bien-sobre-estando pecado, a traves del aguante corramos [en] el torneo yacido ante nosotros"
+		- (2) "habiendo visto a él de nuestra fe, el empiezo y él {perfecionando | desarrollandonos hacia nuestra máxima/mejor expresión}, jesus -- quien cual, ante la yacida alegria delante, {padecio a | seguio bajo} la cruz de humillación/vergüenza/lástima, [lo] habiendo {menospreciado | superado}, se sento en la diestra y del trono de dios."
 	- no podemos rendir a alguien q no conocemos
 	- jesus es el ejemplo perfecto (conocer e intimidad para conocer el ejemplo)
-	- fil 2:3-2
+	- fil 2:3-5 - "[TODO]
 	- no quiso ser superior; con humildad, igual o los otros (o incluso percibir a todos como superiores)
 	- no defendio sus derechos
 	- no querer ser reconocidos
