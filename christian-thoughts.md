@@ -334,4 +334,35 @@ hoy voy a dar la ensenanza en nuestro estudio biblico -- y me gustaria hablar de
 		- esta diciendo a "el padre de vosotros, el cielo" -- a buscar primaramente al reino de dios y su rectitud -- entonces, esta hablando directamente con los hijos del reino del cielo.
 		- esta claro entonces, q aunq sea ya un hijo del cielo, *busca primero al reino de dios*.
 	- mateo 4:8-11: "otra vez el diablo le lleva por encima de una montana muy alta, y le muestra todos los reinos del cosmo y sus glorias; y le dice: aquellos a ti te los dare si postrado me sometas/postres. pues, a el jesus le dice: somete satanas, se escribe por [ciertamente] al senor de tu dios, te prostraras; y a solamente a el le ministraras. entonces, le perdona/descarga/echa/suelta al diablo y mirad venian hacia el y le ministraban"
-	- mateo 4:14: "para q este llenado lo q fue dicho a traves d isias el profeta, diciendo: tierra d zabulón y tierra de neftalí, al camino por el mar, atrevesando el jordán, galilea de los etnicos, la gente sentada firmamente en oscuridad, vio una gran luz; y los sentados firmemente en tierra y la sombra de {tanatos | la muerte}, una luz {a cada uno les terminó | llegó a ellos}. desde aquel cuando, empezó jesus a proclamar: entended, por [ciertamente] se acerca el reino de los cielos" (y justo despues, cerca al mar llama a simon la piedrita y andres) 
+	- mateo 4:14: "para q este llenado lo q fue dicho a traves d isias el profeta, diciendo: tierra d zabulón y tierra de neftalí, al camino por el mar, atrevesando el jordán, galilea de los etnicos, la gente sentada firmamente en oscuridad, vio una gran luz; y los sentados firmemente en tierra y la sombra de {tanatos | la muerte}, una luz {a cada uno les terminó | llegó a ellos}. desde aquel cuando, empezó jesus a proclamar: entended, por [ciertamente] se acerca el reino de los cielos" (y justo despues, cerca al mar a llamar a simon la roca y andres) [TODO - add more references to exemplify the kingdom of God being the terrestrial kingdom (mat 12:28, )]
+	- mateo 12:26-28,29-30 nos dice q jesus "si en el espiritu de dios yo echo [por fuera] los demonios, pues entonces os ha prevenido el reino de dios sobre vosotros"
+2. los reinos son:
+	- el reino de satanas (el inframundo, bajo/dentro de la tierra (hades))
+	- el reino de dios (sobre la tierra)
+	- el reino de los cielos (todo lo q esta por encima de la tierra)
+3. si eso es cierto (q el reino de dios es el reino terrenal (de la iglesia)), es notable la inversion conceptual:
+	- anteriormente, habian dioses para todo: amor (platonico y erotico), avaricia, codicia, rabia, temor (casi todas emociones experimentadas entonces [y es notable tb q entonces, no tuvieron el concepto de "depresion" (lo mas cerca siendo desempoderado/vencido/sumiso a/de una esfuerza no deseada)])
+	- tambien habian dioses para todos los poderes fisicos y celestiales (dioses para todos los astros (galaxias, estrellas, planetas, etc)).
+	- el mensaje de mateo 5-7 nos explica q nuestra responsabilidad (y lo q tenemos voluntad propia para afectar) son nuestras intenciones, acciones y reacciones.
+	- luego, los isrealites juntaron a todos los dioses en uno (jehova), ahora poniendo todo lo q esta por fuera en el dominio de dios.
+	- la escritura (primariamente encontrada en mateo) sobre del reino de los cielos marca una nueva evolucion conceptual: en esencia, ahora, nos esta mostrando el dominio de dios (todo lo q esta por fuera) como "el reino de los cielos" -- y viene con unas diferencias importantes -- mas notable, la igualdad (no parcialidad) q muesta el cielo en tratamiento a todos los seres vivos (bendice a todos).
+	- (gen 3:19) "ὅτι γῆ εἶ καὶ εἰς γῆν ἀπελεύσῃ": "son tierra y a/hacia tierra se apartaran"
+	- no se exactamente donde esta, pero la idea/imagen es: hades (el inframendo, dentro/bajo la tierra) es el dominio de satanas (digamos, el cuerpo pecaminosa) -- entonces, como q (a veces) no somos capaces ni para entender o cOntrolarnos, lo q es importante es la dirreccion de nuestro corazon (nuestras intencions). tiene q ser recta.
+	- ahora, nos muestra la inversion:
+		- dentro de la tierra es dominio de satanas (hasta q entre jesus en su corazon)
+		- la tierra (el cuerpo) es dominio de dios
+		- el aire es dominio de satanas
+		- los cielos (las luminarias) es dominio de dios tambien
+3. dios es el gran "yo soy"
+	- imaginamos q dios es como un espejo -- y vemos a nosotros desarollado/elaborado a su maxima expresion:
+		- si nosotros queremos control, dios es sobre poderoso
+		- si queremos saber mas de lo q esta pasando por fuera, dios es omnipresente
+		- si queremos tener control sobre como pasan los tiempos, dios es sobre-temporal
+		- si queremos amar a los demas ... es amor
+		- si ... comodad y facultad ... nos facilita y nos da oportunidad para tener exito
+	- dios es la expresion (conceptual) mas ideal q podamos tener.
+		- si esa expresion nos lleva hacia destruccion, ese "lado" d dios (q es todo) es "satanas"
+		- si esa expresion nos lleva hacia el cielo (bienestar para siempre), ese "lado" de dios es "el padre celestial"
+	- podemos adivinar el caracter de los isrealites (y los patriarcas), estudiando su percepccion de dios (jehova)
+	- todos tenemos resonancias de dios (q es todo) dentro de nosotros -- y es nuestra decision percibir el dios en q nos resuene
+	
