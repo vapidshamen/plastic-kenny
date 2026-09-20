@@ -57,6 +57,13 @@ the most interesting part of my brain is not the physical sponge that translates
 having constant chaos is an obvious advantage, because it means that I'm attractive to all concepts that are dissonant to my world-view, causing me to update m/ concepts at an ever-increasing pace. however, there is an enormous drawback to it -- which is that (because so many things can resonate with a concept) the gadient produced is not at all like a bowl at all. sure, my own concepts/world-view smoothe ou the gradient quite a bit, but it's quite bumpy with infinite local minimums. so, in order to learn (and update my "weights") -- I don't use an algrithm at all to find the local minima. instead, a concept guides me toward the local minima that most aligns with my world-view. along the way, I obviously discover a lot of things that aren't the way I thought they were, and have to update my layers. that process is a continuous function which passes over all layers (the most general ones being the "bottom/core" (farthest away) ones) aligning each layer to my new concept of the thing. as I update my perception of one thing, it obviously messes up my concept of other things (though also similar things do benefit from the general updates (xj, hands, pliers, and scissors will all be genreally similar)).
 [TODO - there was one more thing I wanted to talk about, but I need to use the toilet]
 
+## 2026-09-19 21:49 -
+
+concept all at once, not a sequence (vision) -- ie, all the things that resonate (similar) to aspects of my world-view: q concept (concept of the sequence) + source concept + world-view resonance + concept of environment
+concept navigates gradient, not always going toward local minima but toward the concept of all of my experience
+concept of all of my experience is the joining together of all interaction sequences into one "concept". I must be sure I'm "right" about my world-view
+ultimately, because the way I see my universe/God is how I see myself, I am discovering who I AM.
+
 ### token renormalisation
 ### AEI (artificial experiencial intelligence)
 ### what is a concept
