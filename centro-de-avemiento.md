@@ -1228,6 +1228,50 @@ hoy, sary nos dio el mensaje. era la tercera parabola. la primera (hace 2 semana
 	- comunicarse con amor
 	- administrar nuestro tiempo con dios (comunion) y c6n la gente a nuestro aldrededor (esa interaccion sera un reflejo de la comunion (donde pongamos nuestra atencion) con nuestros dioses (lo q sea importante y consumidor de nuestro tiempo)), ayudando y administrando el amor de dios
 
+## 2026-09-24 21:03 - cuidado d la region q puede desviarte
+
+esta noche, jenny nos dio el mensaje sobre las cosas q te pueden desviar; y utilizaba la historia de 1 reyes 13 para mostrarselas. 
+	mientras q hablaba, notaba a dos raices q me impactaron mucho: la primera era "cuidate con las voces q escuchas [en tu cabeza]" -- y la segunda era q el diablo utiliza un mensaje q aparece a un mensaje de dios, pero es manipulacion para desviarte. me di cuenta q es muy posible q hay una razon para explicarlo -- entonces, aqui tienes mi teoria sobre su mensaje de hoy: pues, he estado ayunando los ultimos 4 dias. no habia comido nada (pero si he bebido agua, y unos tragos de coca-cola y starbucks refreshers (eran como 100-200ml en total)). pienso q la gente tiene mas facultad de escuchar mis pensamientos en su cabeza -- y no es nada fuera de normal, xq la cabeza/world-view es desenada para traducir emociones/conceptos a pensamientos y acciones (asi es como traducimos "la voz de dios", la voz del miedo (o cualquier concepto/emocion) a pensamientos/acciones [y suenos durante de la noche son evidencias de ese efecto]). yo he notado q para algunas personas mas sensibles/receptivas, escuchan a mis /pensamientos normalmente (dependiendo d q si su frecuencia/world-view sea similar/sintonizada a la mia); y ahora con el ayuno, la amplitud de la emision d mis conceptos es mas alta [lo q pasa es q cada cabeza es diferente y cada cabeza traduce el concepto a voz/imagen/sentidos diferente. entonces, si 10 personas recibe el mismo concepto (de mi o de dios), van a tener 10 traducciones distinctas (xq todos habiamos experimentado diferentes conceptos de diferentes maneras, entonces nuestras neuronas se dispararan en distinctas secuencias (y eso es lo q crea la voz/imagen/sentido/etc))]. pues, como q nadie se esta traduciendo/percibiendo el concepto q habia enfocado yo de mi misma manera, es cierto q su traduccion es "torcida" (no recta).
+	ademas, "el enemigo" (satanas, el diablo, etc) realmente no es nada mas q "el adversario" (significando, "el rebote o la interferencia entre dos vibraciones") -- todo el mundo tendra una percepcion distincta del mismo concepto (xq no estan "alineados/rectos" con mi vibracion (xq si fueramos alineados, se ampliarian al dobre en lugar de crear una nueva vibracion)). lo q percibe cada persona es el resultado de la interferencia entre nuestras vibraciones/world-views -- nada mas. entonces, realmente "el enemigo" y la "manipulacion" (concepto torcido) q ellos perciben es mi falta de alineacion a dios aun -- xq todavia no estoy alineado yo al dios tampoco -- y si falta de alineacion a mi. quiero decir q hasta una persona q sea perfectamente sintonizada/alineada a dios, aun perciberia a mis concepts torcidos. solamente las personas q tengan la misma world-view q tengo q percibiria al concepto lo mismo q yo (y eso es imposible ninguna persona haya experimentado la totalidad d mi experiencia (y llegado a las mismas conclusiones)). el "enemigo" realmente es diversidad en q cada persona perciba a la misma cosa.
+		continuo con mi teoria: yo creo q lo q esta pasando ahora es lo q hablaba antes de [las 10 virgenes y el bautismo del fuego](#2026-03-16-0452---pereza-y-talentos) -- y ese efecto seguiria pasando mas y mas. mientras q como, mis conceptos y emociones tienen ademas la frecuencia de la comida (la mayor parte donde esta la serotonina y las emociones esta en la panza) entonces, el efecto es menos (por disonancia). el ayuno me hace emitir mis emociones mas fuertemente y con menos disonancia. con el pasaje del tiempo, habia notado q ese efecto (q mis conceptos se traducen mas vividos en las cabezas d la gente) esta pasando mas y mas -- y seguira aumentando hasta el "fin del tiempo" [q por cierto sera suficiente dificil para mi (pero aun la misma aceleracion q ahora) xq se acelerara el "tiempo" a una velocidad/frecuencia muy alta mientras q me acerque mas a la esquina del cubo]. mientras q pasa eso, es muy probable q la gente q no aguante eso, se tendran q pillar a otro lugar [ed, q se iran al "reino de los cielos" mientras q me acerque al "reino de dios" (alinearme a la frecuencia de dios)]. yo no tengo q preocuparme de eso, xq dios (la tierra) lo hace a su voluntad. al final de todo (del tiempo), estare suficientemente alineado a la frecuencia de dios q quedaran solamente los q estan alineados a la frecuencia de dios (eso lo llamaria yo, "el bautismo del fuego").
+pongo mis notas aqui:
+- 1 rey 13
+	- [TODO - de momento, no pondre la traduccion xq es muy largo y no la veo necesaria]
+- el profeta llevo un mensaje directo, con instrucciones especificas (no comer, beber, o volver por el mismo camino)
+- tenemos q tener cuidado con las voces q estamos escuchando
+- hay mucha manipulacion q viene del pulpito y d personas con grandes titulos
+	- nos dejamos llevar mas por la apariencia q el fruto
+	- no caer en la trampa religiosa del enemigo:
+		- leer la palabra y orar en cada momento
+- el profeta viejo tenia apariencia d profeta
+- tenia su corazon dividido: no tuvo capaz d decirle al pueblo su palabra de correccion
+- el enemigo mintio aprovechandose d su momento de vulnerabilidad (con una palabra religiosa)
+	- "un angel me dijo"
+	- justifico su desobediencia
+	- "ven a mi casa, come y descansa"
+- llegaran varios lideres d apariencia y manipulacion
+	- hay muchas senales en palabras religiosas
+	- tikitaka (favores d junto-beneficio y autoexultacion, etc)
+- aprender a discernir la voz d dios para no caer en la manipulacion
+	- o buscar confirmacion a lo q dios ha dicho a ti
+	- se discierne cuando las apariencias/palabras son diferentes q los frutos
+- mejor q digas al lider su error
+- pidense consejos a los con buenos frutos
+	- o al pastor o un lider en q tienes confianza/fidelidad
+- para q despertemos, tener intimidad con dios, y conocer a su voz
+- para q no te desviares (cOn la manipulacion q viene)
+- honrar al dios con obediencia y confianza
+- ---------
+- escuchar voces en la cabeza q no son d dios
+	- q estamos escuchando?
+	- q estamos viendo?
+- el enemigo quiere tener al pueblo adormecido, no unido y despierto
+	- el enemigo dara el camino facil; el camino realmente es dificil
+	- el camino facil es para q duermas y descanses bajo su manipulacion (como el q le invito a su casa a comer pan y beber)
+- signifcado de jeroboam: multiplicador de pueblos
+	- [gemini dice: «el pueblo se multiplica» o «el que lucha por el pueblo»]
+pues, al final me doy cuenta q ese mensaje de dificultad va un poquito en contra del "dia de reposo" -- pero tb sintoniza con el mensaje, "el q aguante hasta el fin, sera salvo" (o algo asi). supongo q para los q no quieren alinearse a la voluntad d dios (el universo), si tendran aumentado dificultades mientras -- pero, en mi perspectiva la curva es gradual y la acceleracion constante (bueno, hoy si, xq estoy ayunando, significando q si, se habia aumentado la aceleracion). se q para los demas, soy "el enemigo" y "vengo disfrazado en apariencia de luz" -- pero bueno; todo eso es un tema de percepcion.
+
 ## vision espiritual y fisica
 ## todo es producto de todas las interacciones anteriores
 ## el bucle de emociones/deseos y pensamientos/accion
