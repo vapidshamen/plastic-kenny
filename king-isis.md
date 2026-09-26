@@ -70,3 +70,48 @@ I'm not really sure exactly how to translate it, however the sense that I get is
 ---
 
 I find it interesting that the "father" of jesus in the matthew and luke narrative is joseph (aka: saul/paul/josephus), and the mother is a virgin mary (boethus).
+
+timeline:
+https://youtu.be/MyhVy_7P6M0?list=TLPQMjYwOTIwMjYcsvplvsq7vQ&t=5819
+
+acts 8 has a weird story:
+1. an angel of the lord speaks to philip (lit. fond of horses -- and apparently chariots too) saying to rise up and go toward the south; upon the road going down-footing from jerusalem into gaza (this is the desert road). and having risen up he traversed and behold! a man, an ethiopian, an eunuch, a power of candace queen of the ethiopians. he was over all her treasure and would hace came to worship into jerusalem.
+2. the ethipian eunuch is under-turned and down-steadfast on his chariot, up-knowing the prophet isaias. said about this, the spirit to philip to join/glue himself to that chariot. having ran up against it, philip heard him up-knowing isaias the prophet said, "join earth you know what you're up-knowing?" and the passage up the pen which he was up-knowing was this: as a 4-legged fore-foots upon the slaughter (upon the sword), and like a lamb in front of the shaving him is voiceless, not he opens-up his mouth.
+3. in his bringing-down, was lifted the offspring, through leading, consequenty is removed out of earth the life of him.
+4. since-discerning of that, the eunuch said, "I bind myself (beg) of you around whom the prophet says this -- about me, or about someone else?" having philip opened-up his mouth, and having begun out from this pen, well-angeled him to jesus
+5. while they're traversing down the road, they came upon some water. the eunuch, "behold water! what punishes me from being baptized? {philip said, "if you believe from all your heart it is who I am" after-discerning, he says, "I believe the son of God to be jesus christ"} he gives word to halt the chariot, and both down-footed into the water and drenched him. when up-footing out from the water, the spirit of the lord [jesus] siezed philip and the eunuch didn't behold him any longer; he would go certainly his road rejoicing. [strangely enough, peter says the same thing (he's the son of God) in the district of caesarea of philip]
+6. philip about this was found in azotus, and coming-through, he well-angeled all the towns until his coming into caesarea (having the condition of caesar) [AD54 izas (probably philip, the horse lover) kills azizus (azotus?) of emessa at shmemis]
+7. (acts 9), saul still in-blowing threats and murder into the disciples of the lord, having come to the high priest (ananis?) he requested from him over-standing into damascus (well-watered place), so that if he should find any of the road, being both [types of?] men and women, having been bound, he might bring them into jerusalem. in of this, the traversal happens as he nears (in arm's reach) to damascus, unexpectedly, and also to him, a light dazzled around him from uranus/heaven, and having fallen upon the earth a voice said to him, "saul saul, why do you pursue/chase me hard, you hitting me against the wooden stick?" ... "I am jesus which you've been chasing; instead stand up on your feet into this purpose: for certainly I've appeared to you to appoint you a servant and a witness of what you did see of me and of those; and also I will remove you out of the people, and out of the gentiles into whom I'm sending you; to open their eyes, that they may over-turn out of the darkness into the light; and from the power of satan above to God, that they might receive release of their sins and breaking in to those having sanctified that faith into me." [and now paul begins his second evangalism tour with silas]
+
+damascus (well-watered place) 
+bartholomew (son of the plowman)
+phillip (lover of horses) - also was a son of herod the great and his 5th wife, "cleopatra of jerusalem" (mentioned in AJ17.1.3 and JW1.28.4)
+
+https://youtu.be/MyhVy_7P6M0?list=TLPQMjYwOTIwMjYcsvplvsq7vQ&t=8195
+mat 21:33 - parable of the vineyard
+- jesus promoting that abestee landlords can kill tenants who don't pay their rent
+- landlord = edessan king (izus manu monobazus VI)
+- tenant = romans (they were on edessan lands and demanding the edessans pay rent to the romans)
+- destroy the romans and lend the land out to another people (jews/judea) who will pay the rent
+- octavian augustus gave the lands tax-free to what became the edessans (the ones coming from parthia with half their treasury), then rome (not sure which one: tiberius, caligula, claudius?) renegged on that demanding taxes
+	- thing is, most people liked the roman wealth, stabiliy, and luxury ("what has rome ever done for us!?")
+- matthew the tax-collector probably a tax-collector for the edessans
+- ourania probably linked to "kingdom of heaven" and the galileans (who were mostly eunuchs)
+- epaphroditus (over-aphrodite) was the publisher of paul and josephus, and also the one who killed nero (helped him commit suicide), leaving the throne open (potentially for izus to take the throne)
+- paul/josephus likely had been actively working with vespassian/titus since he went to rome in AD62 to see nero
+	- supposedly he surrenders and switches sides in AD67 to vespassian
+	- josephus tells about a "saul" that goes to see vespassian in greece (AD65-66)
+- izus had a legion also: feeds 5000 grouped in 50's and 100's (centurians)...
+	- later defeats cestius with that legion, setting the rebellion into full effect (no going back now)
+- talmud relates the marriage of jesus of gamala (govenor of tiberius) and mary boethus (who then annoints jesus, making him "the annointed one")
+	- also persecuted by josephus
+	- became high-priest in early AD60's
+- talmud also relates the marriage of jesus of gamala to mary and martha
+	- mary daughter of boethus given to king jannai to make jesus ben gamala the high priest (talmud notes jannai is a pseudonym to agrippa II) [mary was first given to agrippa II, and then to jesus -- which then he married along with martha?]
+	- mary had a dowry of 1 million gold denari (she was very rich) [essentially buying jesus of gamala the high-priest role?]
+	- josephus (as army commander) defeated and captured jesus of gamala on one occasion, but agrippa II ransomed him
+- wikipedia states that [jesus/joshua ben gamala](https://en.wikipedia.org/wiki/Joshua_ben_Gamla) married martha boethus to make him high priest
+	- he was succeded by [mattathias ben theophilus](https://en.wikipedia.org/wiki/Mattathias_ben_Theophilus) [the theophilus that luke/acts are dedicated to? -- and if paul/josephus wrote luke/acts, along with joseph (son of the sabbath and also justus -- which I believe is josephus/paul) being the rejected with the lot falling on matthaias, that means that he wrote luke/acts to the high priest who replaced jesus (which is why jesus sent saul/paul/josephus to the gentiles -- starting his 2nd tour with silas)]
+	- plus in luke's geneology, "jesus supposed son of *joseph* of eli[jah?], of *matthat[ias?]* (gift of ja) [ben theophilus?], of levi [the priesthood], of melchi[zedek?], of jannai [agrippa II?], of *joseph*, of *mattathias* (gift of ja) [ben theophilus?], of amos (strong), of nahum (comfort), of esli (near/reserved), of naggai (reflected brightness/lightening), of maath [ma'at, the egyptian goddess?], of *mattathias* (gift of ja) [ben theophilus?], of semien (famous) [seamen?], of *joseph*, of judah, of jonan [jonah/john?], of rhesa [rhea/Ῥέα goddess born from gaia and uranus?], of zerubabael (descended from babylon), of salathiel (requested el/god), of neri (lamp), of melchi[zedek?], of addi (mouth/jewels/ornaments) [related to adoni/adonis?], of cosam (diviner/lot, divined lot) [as in divine order?], of elmadam (el/god immeasurable/beloved), of er (ayr/watching/awakened), of joshua/jesus, of eliezer (el/god helps/saves), of joram (indeclinable, jehova is exaulted), of *mattathias* (gift of ja) [ben theophilus?], of levi [the priesthood], of sumeon (hearing) [also with barnabas called "niger/black"], of judas/judah, of *joseph*, of jonam [jonah/john], of eliakim (el/god arose), melea (limbs/members), of mainan (dwelling), of *mattatha[ias?]* (gift of ja) [ben theophilus?], of natham (give), of david (loved), jessai (there), of obed (serving), of booz (quickness, pillar in front of the temple), ..., of set, of adam, of God" [there's four josephs, five mattathias (ben theophilus), two jonah/john, two melchi[zedek] -- and that was right after jesus was baptised and said, "you are the son of me, the beloved", kinda like the geneology around david: el arose, dwelling, members, dwelling, gift of ja, given, beloved, there, quickness, serving -- it's a *very strange geneology* up to david...
+
+I feel like there's just so much word-play going on with all of these things, especially since there's a gamala city that was also a rebel holdout during the jewish rebellion which was defeated by titus, and is where titus made a name for himself as general. it's hard to tell what's a title, what's a city, and what's what.
