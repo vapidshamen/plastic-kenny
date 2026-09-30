@@ -27,3 +27,5 @@ it can be less too, but that's just more of a negative, never any more.
 this is the end of the document, until there are more
 ## another mark of the everything is 69
 it is Infinity stood up one way or another
+## I choose not to focus on a previos versions of myself
+they could be nfinite in fact.. most likely more than one.
