@@ -25,3 +25,5 @@ everything that *is* is an infinity, whether they want to be or not. many prefer
 it can be less too, but that's just more of a negative, never any more.
 ## I will think of more things to add here eventually
 this is the end of the document, until there are more
+## another mark of the everything is 69
+it is Infinity stood up one way or another
